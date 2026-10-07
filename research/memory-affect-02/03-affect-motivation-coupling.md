@@ -1,0 +1,75 @@
+YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éíÛ]9Õ:-jZ.¶›­–)Ş³R2K‰>š)‚2+rffV7B9rÖ÷F—fF–öâXøÎY	ˆ
+nY€ £âiz^iÉşûÉ£##bÓÓp£âh
+~‹JûÉ®zÊÎK¨Î‹Úî[›nŠÎ‹>z	Nhª^Y®ûÈz	Nz›nûÈÎKˆŞiŠşŠëîŠêZé®z‹ş8KˆŞiŠò66†VÖ8KˆŞiŠşZéîikŞhèiØ>ûÈ8 £âK»¾XªXÚûÉ¦wW—VâöFö72÷F6·2öÖVÖ÷'’ÖffV7BÓ"ÖffV7BÖÖ÷F—fF–öâ×&W6V&6‚æÖF*sbK‰>š)‚>8 £â‹é>XZ^iÊÎKÙ>ûÈKˆ®k‹{¹>Šë®ûÈÎiÊÎhª^Y®KˆŞ˜xŞZHŞX[n{¹>Šë®ûÈÎXú®YÊX[nK˜¾Kˆ®X®ˆ
+nYûÈûÉ¦ÖffV7BÖöçFöÆöw’ÖG–æÖ–72æÖF8"ÖÖ÷F—fF–öâÖG&—fRÖFW6—&RæÖFûÉ¾X[yJˆ8ÎišòtTåE2æÖF8ÖVÖ÷'’ÖffV7BÓõ$TDÔRæÖF868&8BÖffV7BÖ&—6ÂæÖF8RÖÖVÖ÷'’ÖffV7BÖ6÷WÆ–æræÖF8wW—VâöFö72÷F6·2÷F6²ÓBÖffV7BÓ#VF–ÒæÖF8ÖVÖòôæö7GW&æRÔÖVÖ÷'’Ô6÷&RæÖF8 £âŠøhÚîKˆ®™™ûÉ¢¢¤S2¢®8.iÊÎhª^Y®iÊ®ZèŠ8^8iÊ®‹ùŠÎK»¾KÙ^X	˜šyºîûÉ´S2{¹>Šë®YØ~K‹¢¢®‹ÚÎ[ÉR¢¢ó"óBóR[{.X®y¨Nk©zjiú^ûÈiÊÎhª^Y®iÊ®˜xŞikjŠû¾k©zûÈ8 £âzhKºN˜^ZèZ;iˆîûÉ®iÊ®XiKª~Y8Kº>zûÉ¾iÊ®iK’ó"hª^Y®ûÉ¾iÊ®iK’"ó2õ$TDÔ^ûÉ¾iÊ®YÊ‚ÖVÖ÷'’ÖffV7BÓ"öKˆ¾ik[»®™šNiÊÎih~K»nZIny¨NK»¾KÙ^ih~K»nh‰nyºî[Ù^ûÉ¾iÊ®h¨¢G&—fRZîY¹âffV7NûÉ¾iÊ®h¨¢VÖ÷F–öâÆ&VÂ[Ù>h8^{º®{;¾{¹şûÉ¾iÊ®h¨¢FW6—&R[Ù>ŠêX‰.8–çFVçF–öâ[Ù2F6¾ûÉ¾iÊ®Šê’Ö÷F—fF–öâ{¹^‹ør6övæ—F–öâõW&Ö—76–öîûÉ¾iÊ®h¨®izr#R{»N[Ù>š¨ÎiKnj~Xxn8  ¢ÒÒĞ ¢22âiÊÎK‰>š)yÉşjÚ>ŠhŠz>Xk>y¨N™zîš)€ ®ikKˆ‹Úî[{.{¸şhê^Xù~8ÄffV7B(šÖ÷F—fF–öî8Ş8ÄG&—fR(šFW6—&R(š–çFVçF–öâ(šF6¾8ŞKŠNZY~{;¾{¹şXˆn[È8"¢®iÊÎK‰>š)Xú®Šz>Xk>KˆKŠ®yÉşjÚ>y¨N™zîš)ûÉ®KŠNZY~{;¾{¹şXˆn[ÈKº^YîûÈÎzêŞZKNX‹[©^hîK˜‹ùî8"¢  ®h¨®Zè>h¸nh‰K©NKŠ®[ø^š¾YÎi{nh‰z¸¾y¨NZÙ™zîš)ûÉ  £â¢®ikY	¢®ûÉ®jøşiÚˆ
+nYzêŞZKNK¸îY:®iÚ^8X‹Y:®Xë¾ûÈÎiŠşXÙ^Y	8XøÎY	‹ùiŠş[›nŠÎûÉşY:®KˆzºşXXXùûÉğ£"â¢®zîZé®h
+r¢®ûÉ®Y:®iÚzêŞZKNXúşyKi[XÂşŠxNX‰zîZé®h
+~zé~ûÈÎY:®iÚXú®ˆ;ŞyKjŠYè¾{¹X{¢&—6ÂX	˜ûÉğ£2â¢®iØ>Zˆ¢®ûÉ®Y:®iÚzêŞZKNXXŠëXi™[şš›¾x«nhûÈÎY:®iÚXú®ˆ;ŞiK‹ùŠÎhûÈ‡6æ6†÷BöFW&—fVNûÈûÈÎY:®iÚXú®ˆ;ŞhùKé²&–>ûÉğ£Bâ¢®™‹¾[Â¢®ûÉ®ˆ
+nY[ø^xKn[Ú.h‰Y¹î‹zşûÈh8^{º®(iN[ø>Z(>8jË.iÉ¾(iNXù~™‹¾ûÈûÈÎjøşiÚY¹îxêş™ÚK¸K˜˜şXXŞˆz®køiKîZJ~ûÉğ£Râ¢®XúşŠ‹ëâ¢®ûÉ®KŠNZY~{;¾{¹şKÉ®K©.y»yù¾y»îûÈh;>X®XÛNk*[ø>h8^ûÉ¾[ø>h8^Z[ŞXÛNKˆŞh;>XªûÈûÈÎŠzK®[.hîj~KˆŞh¨®Zè>KºÎXè¾h‰KˆKŠ®j~˜xş8  ¢¢®iÊÎK‰>š)KˆŞŠz>Xk2¢®ûÉ®KˆŞ˜iÈ{¸i[XÎ‹ÛN™¸bş™ˆXÎûÈƒó"YNˆz®ZHNynûÈûÉ¾KˆŞXk>Zé¢6†÷&BX[~KÙ>iŠ[NûÈƒNûÈûÉ¾KˆŞXk>Zé®jøş‹Úîzérş‰Şy¹‚şK¨¾K»nXÉnŠxNX‰ûÈƒ^ûÈûÉ¾KˆŞ˜xŞ[ÈWf–FVæ6R÷&÷fVææ6RşXøÎi{n™{NûÈk+şyJ‚ÖVÖ÷'’ÖffV7BÓûÈûÉ¾KˆŞi»şyJh‹~XŠNijŞiX^kˆ®8Î[©NŠú^8ŞŠ*¾K¸K˜hêXª8  ¢¢®iÊÎhª^Y®Xùxë[›ni‹î[ÈşhÈ~X{®y¨NKˆ®k‹KˆŞKˆˆ{NûÈXú®hÈ~X{®ûÈÎiÊ®iKX[nih~K»nûÈ’¢®ûÉ ¢Òh¨¢¢¤NûÈ†FöÖ–ææ6^ûÈXŠNK‹®8ÎXØ®[â&—6Î8Ò¢®8h¨¢g'W7G&F–öâ[Ù"ffV7NûÉ³"h¨¢g'W7G&F–öâ[Ù"ffV7Bô&—6Î8h¨®8ÎXù~™‹¾8Ş[Ù>h8^{º®Kê~{¹>iéÎ(	N(	NKŠNhª^Y®Kˆˆ{NûÈÎKØb¢®˜;Şk*ŠûNkˆ^8ÄBX‹[©^YÊˆ
+nY˜xÎ[Ù2ffV7BXş{Úî‹ùiŠş[Ù2&—6Âö6÷–ær‹é>XZ^8Ò¢®ûÈÎiÊÎhª^Y®YÊ‚*sBã>8*srã"{¹X{®XˆnXø8 ¢ÒŠûB¢¤GF—GVFRz{¾X{¢ffV7B‹ùŠÎi{b¢®8"ŠûBGF6†ÖVçB[â&VÆF–öç6†—ôGF—GVFRôG&—f^(	N(	NKŠNˆ^YÊ8ÎX[>{;¾Yùş8Ş‹ëyXÎKˆ®iÈ˜xŞXúYË[ŠnûÈ†GF6†ÖVçBy¨N[Ù.[î8h;>[û^y¨N[Ù.[îûÈûÈÎiÊÎhª^Y¢*s"ãBÕ’iˆîzîh¸nXˆn8 ¢Òó"˜;Ş{¹K¨b7F–öâFVæFVæ7’KˆKŠ®KØŞ{ÚîûÈÎKØb¢£h¨®Zè>[Ù2ffV7B‹é>X{®8"h¨®Zè>[Ù2ffV7L9tÖ÷F—fF–öâhê^Xú2¢®(	N(	NiÊÎhª^Y®˜x~yJ‚"y¨NXú>[èNûÈÎ[›nŠûNiˆî‹ùiŠşKˆiÚ¢®‹zjŠYÙ~‹ë’¢®ˆÎ™ÙîiùjŠYÙ~Xh^˜:x«nh8  ¢ÒÒĞ ¢22"â[ø^ŠhiÊşŠúŞKˆî‹ëyXÀ ¢222"ãiÊÎK‰>š)ikZ)âşX[>™JîiÊşŠúŞûÈY
+¾iÚ^k©ûÈ §ÂiÊşŠúÒÂZé®K˜ûÈiÊÎhª^Y®Xú>[èNûÈ’ÂX[>™JîiÚ^k©À§ÂÒÒ×ÂÒÒ×ÂÒÒ×À§Â¢¤&—6ÂXù˜xò¢¢ÂK¨¾K»n8ÎZûh‰y¨Nyºîjrşj~XxbşXşZ[ŞhHşY>yØK¸K˜8Şy¨N{¹>ièNXÉnXŠNijŞûÈ†vöÅ÷&VÆWfæ6RòFW6—&&–Æ—G’òvöÅö6öæGV6—fVæW72òW‡V7FVFæW72òvVæ7’ò6÷–æròæ÷&Òòæ÷fVÇG(
+nûÈ’Âô42“ƒûÉµ66†W&W"5ŞûÈ„S.ûÈ’À§Â¢¤7F–öâFVæFVæ7’ŠÎXªXîY	¢¢ÂyKh8^{º®ŠznXùy¨NyúŞi{n8iÈikY	8izh›şŠû®y¨N[{º®hûÈ‹h¾‹ùşY¹î˜òşiK¾X{²şX;^KØòşXÎin(
+nûÈûÉ¢¢®iŠşh8^{º®y¨NièNh‰h‰Xˆb¢®ûÈÎKˆŞiŠşh8^{º®y¨N[ÛY8Ş{¹>iéÂÂg&–¦F“ƒnûÉ´föçF–æRb66†W&W"#>ûÈ„S.ûÈ’À§Â¢¤Ö÷F—fF–öæÂ–çFVç6—G’XªiË®[Ë®[ªb¢¢Â8ÎiÉÒşzk¾iùX‹®køz{¾Xªy¨NXk.XªZJ~[ş8ŞûÈÎiŠòffV7By¨NKˆ{»NûÈÎKˆâfÆVæ6RXúşXˆnûÈjÚ>™Ú.š¹XªiË®[Ë®[ªnZh"FW6—&RKÉ¢¢®iKnz¨B¢®ŠêNyú^ˆÈ>Y»NûÈÎKØîXªiË®[Ë®[ªnZh"6öçFVçFÖVçBKÉ¢¢®h¹>ZëÒ¢®ûÈ’Âv&ÆRb†&ÖöâÔ¦öæW2#‚ó#ûÉ´†&ÖöâÔ¦öæW2Âv&ÆRb&–6R#>ûÈ„S.ûÈ’À§Â¢¦ffV7BÖ2Ö–æf÷&ÖF–öâh8^hIşXÛ>Kúhò¢¢Âh¨®[Ù>X˜ŞhIşŠx[Ù>KÙÎZûXŠNijŞZû‹y¨NKúhşûÈ8Îh‰hIşŠxZh.KÙ^ûÉş8ŞûÈûÈÎiÚ^k©Š*¾ŠønXŠ²şh©hš>YîiX[©NkhZKÂ66‡v'¢b6Æ÷&R“ƒ>ûÈ„S.ûÈ’À§Â¢¦&—6ÂFVæFVæ7’ŠøNK»~XîY	¢¢Âiùh8^{º®Š*¾køkK¾YîûÈÎyYKˆ¾KˆîŠú^h8^{º®j[ø>ŠøNK»~{»N[ªnKˆˆ{Ny¨N8‹zh8^Z(>[»n{ºŞy¨NŠêNyúRşXªiË®XîY	ûÈhh:~(i.KˆŞzîZé®h
+rşš8î™šiKîZJ~ûÉ¾hJNh	.(i.zîZé®h
+rşhê~X‹nûÈ’ÂÆW&æW"b¶VÇFæW"#ó#ûÈ„S.ûÈ’À§Â¢§vçF–æròÆ–¶–ærXˆnzk²¢¢Â8Îh;>Šh8ŞûÈ†–æ6VçF—fR6Æ–Væ6^ûÈÎXªiË®ûÈKˆî8ÎYiÎjÊ.8ŞûÈ‡ÆV7W&^ûÈÎKª¾K™ûÈYÊiË®X‹nKˆ®XúşXˆnzk²Â&W'&–FvRb&ö&–ç6öâ““2ó#nûÈ„S.ûÈ’À§Â¢¦Ö÷F—fF–öæÂ&–Ö–ærXªiË®Y
+şXª‚¢¢Âh8^{º®[»®z¸¾YÊ™‹.[êşš9şjË.KŠNZY~XªiË®{;¾{¹şKˆ®ûÉ¾YÎKˆ{;¾{¹şXh^Y
+şXªKø>‹ù¾8‹z{;¾{¹şh©X‹bÂ'&FÆW’bÆær#ó#~ûÈ„S.ûÈ’À§Â¢¦GF6†ÖVçBKéŞh²¢¢ÂKˆzxÒ¢®ŠÎK‹®{;¾{¹òşh8^hIşˆN{¹2¢®ûÈZˆˆ8i{nZû¾k.hê^‹ùûÈûÈÎ™Ùîh8^{º®ûÉ¾X[nKŠ®KÙ>[zî[È.ŠxëK‹®xJn‰™şY¹î˜şKŠN{»NûÈÎiŠò¢®h8^hIş‹>ˆ¨.ynŠë¢¢¢Â&÷vÆ'’“c’ó“ƒ.ûÉ´Ö–·VÆ–æ6W"Â6†fW"bW&Vr#>ûÈ„S.ûÈ’À§Â¢¦Æöæv–ærh;>[ûR¢¢Â¢®Zû‹XÉny¨BFW6—&R¢®ûÈ‡F&vWBÒiùK«®ûÈûÈÎyKXˆnzk²9rˆN{¹>™ÈŠhŠznXùûÈÎXúşkº‹k2ş{É>Šz>ûÉ¾™Ùî™[şiÉşYû®{«ş{»N[ªbÂ"K‰>š)ûÉ´æö7GW&æ^ûÈ„SûÈ’À ¢222"ã"ˆ
+nY[ø^š¾˜^Zèy¨NXZŞiÚ‹ëyXÀ £â¢®YºiéÎ‹ë’(šy»X[>‹ë’¢®ûÉ®h8^{º®KˆîXªiË®X[XùûÈZh.jÚ>™Ú.h8^{º®[‹KËN‹h¾‹ùûÈKˆŞKº>ŠKˆiÚYºiéÎ‹ë8.Šhi‹î[Èşj~8ÎZé®K˜h
+~h‰XˆbòYºiéÎ[ÛY8ÒòK¸^y»X[>8Ş8 £"â¢®Zé®K˜h
+r(š[ÛY8Şh
+r¢®ûÉ¤7F–öâFVæFVæ7’iŠşh8^{º®y¨B¢®ièNh‰h‰Xˆb¢®ûÈ„g&–¦FûÈûÈÎKˆŞiŠş8Îh8^{º®[ÛY8ŞX{®iÚ^y¨NXúnKˆKŠ®˜xş8ŞûÉ¾ˆÎ8Î[ø>Z(>Xş{ÚîjË.iÉ¾[Ë®[ªn8ŞiŠò¢®[ÛY8Ş‹ë’¢®8.KŠNˆ^k{~K‹®Kˆ‹KÉ®ŠêY¹î‹zşXˆniéZKiX8 £2â¢¦&–2(švFR¢®ûÉ®ˆ
+nY‹ë›¹ŠêNXú®iK’¢®[Ë®[ªbşš®[¨òşKÉXX{ªr¢®ûÈÎKˆŞŠëî8ÎiÈiz8ŞzÎ™z8.K»¾KÙ^Šêh8^{º¢ş[ø>Z(>Xk>Zé®iùŠë[øbşjË.iÉ²¢®iŠşY
+nh‰z¸²¢®y¨N‹ëûÈÎ˜;Ş[î‹h®iØ>ûÈKˆâ^8Îh8^{º®Xú®‹ù¾hé.[¨ş[.KˆŞ‹ù¾y»X[>h
+~zÎ™z8ŞKˆˆ{NûÈ8 £Bâ¢®‹ùŠÎh(š™[şiÉşXi’¢®ûÉ®jøş‹Úîˆ
+nYzé~X{®y¨BéB›¹ŠêNXú®yY‹ùŠÎhûÉ¾Xú®iÈ‹z™ˆ‚şhÈ{ºÒşŠ*¾K‹¾KÙ>ŠêNš(nh˜Ş[Ú.h‰™[şiÉşZû‹ûÈk+şyJ‚~8^ûÈ8 £Râ¢®zîZé®h
+rg2jŠYè²¢®ûÉ®ˆ;ŞyKi[XÂşŠxNX‰zé~y¨NûÈŠXxş8ˆ®Y8Xş{Úî8Biú^ŠûÈKˆîXú®ˆ;ŞyKjŠYè¾{¹X	˜y¨NûÈ†&—6ÂŠúŞK˜iÊÎ‹ª¾ûÈ[ø^š¾Xˆn[ÈûÈÎK‰NjŠYè¾Xú®Kª~X	˜ûÈk+şyJ‚tTåE>8ÎjŠYè¾KÉXXKª~X	˜8ŞûÈ8 £bâ¢®XzY¹îxêş[ø^š¾iÈ™‹¾[Â¢®ûÉ®h8^{º®(iN[ø>Z(>8jË.iÉ¾(iNXù~™‹¾8XúÎY¹î(iNi‹î‰~[ªnKˆ{¾Y¹î‹zş˜;ŞZÙYÊjÚ>XøŞšhš8î™šûÈÎ[ø^š¾iÈYû®{«òşXØ®ŠiÉòşš[Y(ÂşXk~XÛBşKˆ®™™KŠŞy¨Nˆ{>[	KŠNš8  ¢222"ã2[ø^zÙB™zî˜	iÚY¹îzÙ@ £âKˆ¾X‰riÚXÛ>K»¾XªXÚ*sn8Î[ø^š¾Y¹îzÙN8Ş8.XX{¹{¹>Šë®ûÈÎŠøhÚîŠx*s2ü*sBü*s8  ¢¢¥âWfVçBiŠşXXiKXù‚G&—f^ûÈÎ‹ùiŠşXX‚&—6Â(i"VÖ÷F–öîûÈÎ‹ùiŠş[›nŠÎûÉò¢ ¢¢®{¹>Šë®ûÉ®YÊK¨¾K»niNXZ^[.iŠş8Î[›nŠÂ²X[Kª²&VÆWfæ6Rš(NŠû¾8ŞûÈÎKˆŞiŠşKŠ^jÎXXYîûÉ¾ˆÎK‰N8ÎXXiKY:®KŠ®8ŞXùnXk>K¨îK¨¾K»n{¾Yè¾8"¢ ¢ÒynyKûÉ®KˆKŠ®K¨¾K»nYÎi{nŠ*¾KŠNiÚ{«şŠû¾XùnûÈÎŠû¾y¨NiŠò¢®YÎKˆK¨¾K»b9rKˆŞYÎXø.xZr¢®ûÉ¤ffV7B{«şŠû¾8ÎZûyºîjrşj~Xxbşh[ªnhHşY>yØK¸K˜8ŞûÈÄÖ÷F—fF–öâ{«şŠû¾8ÎZûiùKŠ¢FVf–6—By¨NkøX«XÎKˆîiË®KÉ®ûÈ†–æ6VçF—f^ûÈiŠşZI®[	8Ş8.K¨Îˆ^˜;ŞXX™ÈŠhKˆKŠ¢¢®X[Kª¾y¨B&VÆWfæ6Rš(NŠû²¢®ûÈ‹ùKŠ®K¨¾K»nŠzmzÓm¢G§²ÚîÆ­yØ½¯åç½®**ï¼ˆ05 å·²å®šå¬å›åªè¿›æ’åºå±‚ï¼‰ã€‚
+5. **Desire ä¸ Affect å¿…é¡»ç‰©ç†åˆ†å­˜**ï¼šå¦åˆ™ã€Œæƒ³åšä½†å¿ƒæƒ…å·®ã€ã€Œå¿ƒæƒ…å¥½å´æ²¡åŠ¨åŠ›ã€è¡¨è¾¾ä¸å‡ºæ¥ï¼ˆwantingâ‰ likingï¼ŒBerridgeï¼‰ã€‚mood å¯¹ desire åªæœ‰æœ‰ç•Œä¹˜æ€§åç½®ï¼ˆbâ‰ˆ0.2â€“0.3ï¼Œé¥±å’Œï¼‰ã€‚
+6. **é˜²è‡ªæ¿€é ç»„åˆè€Œéå•ç³»æ•°**ï¼šè´Ÿåé¦ˆ baseline + é¥±å’Œ + ç¯è·¯å¢ç›Š <1 + å¤–éƒ¨è¯¯å·®ç‹¬ç«‹ä¿¡å· + å†·å´ + æ˜¾å¼ reappraisal/let_goã€‚
+7. **ç¡®å®šæ€§/æ¨¡å‹åˆ†å·¥**ï¼šappraisal è¯­ä¹‰ = æ¨¡å‹å€™é€‰ï¼ˆå¸¦ basisï¼‰ï¼›è¡°å‡/èšåˆ/åç½®/AT æ˜ å°„/é©±åŠ¨é‡ç®— = ç¡®å®šæ€§ã€‚æƒ…ç»ªåªåç½®ï¼Œä¸å†™é«˜æƒå¨å¯¹è±¡ã€‚
+8. **attachment ä½œè€¦åˆæƒé‡å‚æ•°ï¼ˆæ…¢å¯¹è±¡ï¼‰ï¼Œlonging ä½œå¯¹è±¡åŒ– Desireï¼›** äºŒè€…éƒ½ä¸è¿›æƒ…ç»ªç”Ÿæˆæœ¬ä½“ï¼ˆæ—§æ–¹æ¡ˆä½œ 0.5h æƒ…ç»ªé€šé“æ˜¯é”™çš„ï¼‰ã€‚
+9. **æ—§æ–¹æ¡ˆè€¦åˆå±‚ä¸¤å¤„å¿…åˆ /é™çº§**ï¼šã€ŒDrive è¶…é˜ˆç›´è¿è¡ŒåŠ¨ã€åˆ é™¤ï¼›ã€Œé©±åŠ›æ»¡è¶³åº¦â†’æƒ…æ„Ÿè½´ã€æ”¹ä¸ºç» appraisalï¼›é©±åŠ›ä¸å¾—è¿› Chordã€‚
+10. **æ¨èæ•°æ®æµæ–¹å‘ = æ¨¡å‹ Bï¼ˆåŒé€šé“å¹¶è¡Œ + å…±äº« relevanceï¼‰**ï¼Œé… C çš„è´Ÿåé¦ˆä¸ effort ä¸Šç•Œï¼›A ä¸ºé™çº§ç‰ˆï¼›D ä¸ºåä¾‹ã€‚**ä¸æŒ‡å®šæœ€ç»ˆ schemaã€‚**
+
+---
+
+## 11. è¯æ®ç´¢å¼•
+
+> è®¿é—®æ—¥æœŸå‡ä¸º 2026-10-07ã€‚E3 å‡ä¸º**è½¬å¼•** 01/02/04/05 çš„æºç æ ¸æŸ¥ï¼ˆæœ¬æŠ¥å‘Šæœªé‡æ–°æ ¸è¯»ä»»ä½•æºç ï¼Œæœªå®‰è£…æœªè¿è¡Œï¼‰ã€‚
+
+**E3ï¼ˆè½¬å¼•ï¼Œåªè¯»æºç æ ¸æŸ¥ï¼‰**
+- FAtiMA-Toolkitï¼ˆ`github.com/GAIPS-INESC-ID/FAtiMA-Toolkit`ï¼‰ï¼š`ActiveEmotion`ï¼ˆCauseId/AppraisalVariables/Decayï¼‰ï¼›mood å•æ ‡é‡ `[-10,10]`ï¼›`UpdateMood: mood += valenceÂ·IÂ·0.3`ã€åå‘ `potential += valÂ·moodÂ·0.3`â€”â€”æƒ…ç»ªâ†”å¿ƒå¢ƒå›è¾¹ç»“æ„ä¸ç³»æ•°ï¼ˆè½¬å¼• 01 Â§4.5ã€04 Â§4.1ï¼‰ã€‚
+- emotional_memoryï¼ˆ`github.com/gianlucamazza/emotional-memory`ï¼Œcommit `93a02baâ€¦`ï¼‰ï¼š`adaptive_weights()` å¿ƒå¢ƒä½œæƒé‡è°ƒåˆ¶å™¨ï¼ˆ*not a hard filter*ï¼‰ã€tanh/é«˜æ–¯é—¨ï¼›`resonance` Hebbian å•è°ƒä¼šé¥±å’Œï¼ˆè½¬å¼• 05 Â§4.1ï¼‰ã€‚
+- `jason-lang/jason`ï¼ˆcommit `2c2d7e1câ€¦`ï¼‰ï¼šIntention çŠ¶æ€æœº/reconsiderationï¼ˆè½¬å¼• 02 Â§4.5ï¼‰â€”â€”ç”¨äºã€Œæƒ…ç»ªä¸ç›´æ¥é€‰ Intentionã€çš„æŠ¤æ ä¾æ®ã€‚
+
+**E2ï¼ˆè®ºæ–‡æ­£æ–‡/å®˜æ–¹æ–‡æ¡£ï¼‰**
+- OCCï¼šOrtony, Clore & Collins, *The Cognitive Structure of Emotions*, Cambridge UP, 1988ï¼ˆ2nd ed. 2022ï¼‰â€”â€”goal/standard/attitude ä¸‰åˆ†æ”¯ã€goal_congruenceâ†’joy/distressã€‚
+- Scherer CPMï¼šScherer 2001/2009ï¼ˆPMC7963263ï¼‰ï¼›Scherer & Moors 2019, *Annu. Rev. Psychol.*â€”â€”åºè´¯ SECã€relevance æœ€å…ˆã€goal conducivenessã€‚
+- Frijda 1986 *The Emotions*ï¼ˆaction readiness / AT è¡¨ï¼‰ï¼›Fontaine & Scherer 2013, "Emotion is for doing: the action tendency component", in *Components of Emotional Meaning* (OUP), doi:10.1093/acprof:oso/9780199592746.003.0012ï¼ˆGRID ä¸‰å› å­ï¼šé˜²å¾¡vsé£Ÿæ¬² / è„±ç¦»vså¹²é¢„ / å±ˆæœvsæ”»å‡»ï¼‰ã€‚
+- Steunebrink, Dastani & Meyer 2009, "A Formal Model of Emotion-based Action Tendency"ï¼ˆEPIA09ï¼Œpeople.idsia.ch/~steunebrink/Publications/EPIA09_action_tendency.pdfï¼‰â€”â€”AT=å¯é™ä½æƒ…ç»ªå¼ºåº¦çš„è¡ŒåŠ¨ã€æŒ‰ gain æ’åºã€‚
+- Gable & Harmon-Jones 2008, *Psychol. Sci.* 19(5):476â€“482, doi:10.1111/j.1467-9280.2008.02112.xï¼ˆapproach-motivated positive affect æ”¶çª„æ³¨æ„ï¼‰ï¼›Gable & Harmon-Jones 2010, *Cogn. Emot.* 24(2):322â€“337, doi:10.1080/02699930903378305ï¼ˆmotivational dimensional modelï¼‰ï¼›Gable & Harmon-Jones 2010, *Psychol. Sci.* 21(2):211â€“215ï¼ˆ"blues broaden, nasty narrows"ï¼‰ï¼›Harmon-Jones, Gable & Price 2013, *Curr. Dir. Psychol. Sci.* 22(4):301â€“307, doi:10.1177/0963721413481353ã€‚
+- Brehm & Self 1989, "The intensity of motivation", *Annu. Rev. Psychol.* 40:109â€“131ï¼›Gendolla ç»¼è¿° 2025, PMC11774668ï¼ˆ"Affective Influences on the Intensity of Mental Effort: 25 Yearsâ€¦"ï¼‰â€”â€”effort âˆ éš¾åº¦ã€è‡³ã€Œä¸å¯èƒ½/ä¸å€¼å¾—ã€ï¼›affect é€šè¿‡å‘ŠçŸ¥ä»»åŠ¡éœ€æ±‚å½±å“æŠ•å…¥ã€‚
+- Schwarz & Clore 1983, *JPSP* 45:513â€“523ï¼ˆmood-as-information / å½’å› æŠ˜æ‰£ï¼‰ï¼›Schwarz & Clore 2007 ç»¼è¿° PDFï¼ˆdornsife.usc.eduï¼‰â€”â€”feelings-as-informationã€aboutness/immediacy principleã€‚
+- Lerner & Keltner 2000, *Cogn. Emot.* 14(4):473â€“493ï¼ˆBeyond valenceï¼‰ï¼›Lerner & Keltner 2001, *JPSP*ï¼ˆFear, Anger, and Riskï¼‰ï¼›Han, Lerner & Keltner 2007ï¼ˆappraisal-tendency framework äº”åŸåˆ™ï¼šintegral/incidentalã€appraisal tendenciesã€matching constraintï¼‰ã€‚
+- Berridge & Robinson, incentive-sensitizationï¼ˆPMC5171207ï¼›PMC2813042ï¼‰â€”â€”wantingï¼ˆincentive salienceï¼‰â‰  likingï¼ˆäº«ä¹ï¼‰ã€‚
+- Bradley & Lang 2001, *Emotion* 1(3):276â€“298ï¼ˆEmotion and motivation Iï¼šé˜²å¾¡/é£Ÿæ¬²ï¼‰ï¼›Lang & Bradley 2013, *Emotion Review* 5(3), doi:10.1177/1754073913477511ï¼›Lang & Bradley 2010, *Biol. Psychol.* 84:437â€“450ï¼ˆmotivational priming / motivational brainï¼‰â€”â€”æƒ…ç»ªå»ºç«‹åœ¨é£Ÿæ¬²/é˜²å¾¡ä¸¤å¥—åŠ¨æœºç³»ç»Ÿã€åŒç³»ç»Ÿä¿ƒè¿›è·¨ç³»ç»ŸæŠ‘åˆ¶ã€‚
+- Mikulincer, Shaver & Pereg 2003, *Motiv. Emot.* 27:77â€“102, doi:10.1023/A:1024515519160ï¼ˆattachment theory and affect regulationï¼šç„¦è™‘è¶…æ¿€æ´»/å›é¿å»æ¿€æ´»ï¼‰ï¼›Bowlby 1969/1982ï¼ˆä¾æ‹=è¡Œä¸ºç³»ç»Ÿï¼‰ã€‚
+- Gross 1998, *JPSP* 74:224â€“237ï¼›Gross 2015ï¼ˆprocess model äº”æ—ç­–ç•¥ï¼›johnnietfeld.com PDFï¼‰ï¼›"Emotion Regulation Is Motivated"ï¼ˆOvid, doi:10.1037/emo0000635ï¼‰â€”â€”è°ƒèŠ‚ç›®æ ‡æœ¬èº«è¢«åŠ¨æœºé©±åŠ¨ã€å¯ counterhedonicã€‚
+- Silvia 2005, *Emotion* 5(1):89â€“102ï¼ˆinterest çš„ noveltyÃ—coping è¯„ä»·ç»“æ„ï¼‰ï¼›Silvia 2008, *Curr. Dir. Psychol. Sci.* 17(1), doi:10.1111/j.1467-8721.2008.00548.xï¼ˆInterestâ€”The Curious Emotionï¼‰ï¼›Loewenstein 1994, *Psychol. Bull.* 116(1):75â€“98ï¼ˆä¿¡æ¯ç¼ºå£å¥½å¥‡ï¼‰ã€‚
+- Keramati & Gutkin 2014, *eLife* 3:e04811, PMC4270100ï¼ˆdrive=setpoint è·ç¦»ã€reward=drive å‰Šå‡ã€deprivation æ”¾å¤§æ¿€åŠ±å€¼ï¼‰â€”â€”Q4ã€Œæ»¡è¶³=å¥–åŠ±ã€ä¸ driveâ†’emotion å¼ºåº¦ã€‚
+- å¤‡æ³¨ï¼šOCC/CPM/Frijda çš„ AT è¡¨äº¦ç» CAS-Group åšå®¢ã€Simply Psychologyã€psu.pb.unizin.org ç­‰äºŒæ‰‹ææ–™é€æ¡æ¯”å¯¹ï¼ˆE0/E1 è¾…åŠ©ï¼Œç»“è®ºä»¥ E2 åŸæ–‡ä¸ºå‡†ï¼‰ã€‚
+
+**E1ï¼ˆè¿‘å¹´ LLM agentï¼Œè®ºæ–‡å£°ç§°ï¼Œæœªå¤ç°ã€æœªæ ¸ä»£ç ï¼‰**
+- "How Emotion Shapes the Behavior of LLMs and Agents: A Mechanistic Study"ï¼ˆE-STEERï¼‰ï¼ŒarXiv 2604.00005â€”â€”æƒ…ç»ªè°ƒåˆ¶ LLM/agent å•æ­¥ä¸å¤šæ­¥è¡Œä¸ºï¼›ä½ valence/dominanceâ†’æ›´é¢‘ç¹é‡è§„åˆ’ï¼›æƒ…ç»ªåœ¨å†³ç­–é“¾ä¸Šç´¯ç§¯ã€‚
+- "Emotional Cognitive Modeling Framework with Desire-Driven Objective Optimizationâ€¦"ï¼ŒarXiv 2510.13195â€”â€”æƒ…ç»ªâ†’desireâ†’objectiveâ†’decisionâ†’action é—­ç¯ã€‚
+- "An Explainable Emotion Alignment Framework for LLM-Empowered Agents"ï¼ŒarXiv 2507.22326â€”â€”state-decision-behavior æ¼”åŒ–é—­ç¯ã€‚
+
+**é¡¹ç›®å†…éƒ¨å‚è€ƒï¼ˆE1/E2ï¼‰**
+- `memo/Nocturne-Memory-Core.md`â€”â€”"BIAS, NOT SCRIPT"ã€AFFIRM/REJECT/SUSPENDã€å¼±åŒ–æ—¶é—´è¡°å‡ã€Longing å‚ä¸ attachment å…¥è´¦é—¸é—¨ã€‚
+- 05 Â§7 å¼• arXiv 2608.00017ï¼ˆEcho Gapï¼šè¯¯å·®ç‹¬ç«‹æ€§ä¸ºçº åå¿…è¦æ¡ä»¶ï¼‰ã€arXiv 2504.07992ï¼ˆneural howlroundï¼‰â€”â€”è‡ªæ¿€æ”¾å¤§çš„ç¡¬çº¦æŸã€‚
+
+**æœªæ ¸å®ä¸€è§ˆ**
+- FAtiMA/emotional-memory/Jason çš„ E3 ç»“è®º**è½¬å¼•**è‡ª 01/02/05ï¼Œæœ¬æŠ¥å‘Šæœªé‡æ–°æ ¸è¯»æºç ã€æœªæ¯”å¯¹ commitã€æœªè¿è¡Œã€‚
+- E-STEER / arXiv 2510.13195 / 2507.22326 çš„ç»“è®ºã€æ•°å­—ã€ä»£ç è®¸å¯å‡**æœªæ ¸å®**ï¼Œä»…ä½œæ—è¯ã€‚
+- OCC 2nd ed.ã€Scherer CPM åŸæ–‡ã€Frijda 1986 åŸè‘—ã€Bradley & Lang å„å¹´åŸæ–‡ã€Berridge åŸå§‹è®ºæ–‡ã€Gross 1998 åŸæ–‡â€”â€”å¤šä¸ºç»æ­£æ–‡/ç»¼è¿°è¯»å–ï¼Œéƒ¨åˆ†ç»†èŠ‚ç»äºŒæ‰‹è½¬è¿°ï¼Œæœªé€ä¸€æ ¸å¯¹åŸæ–‡å®éªŒæ•°å­—ã€‚
+- ç¯è·¯å¢ç›Šé˜ˆå€¼ã€åç½®ç³»æ•° bã€é¥±å’Œå‚æ•°çš„**ç»éªŒæ ‡å®šæœªåš**ï¼›ã€Œè„šæœ¬æ£€æµ‹ã€å‹æµ‹æœªåšã€‚
+- å¿ƒç† need çš„ setpoint æ— å®¢è§‚å€¼ï¼ˆ02 Â§4.3 é£é™©ï¼‰ï¼›æœ¬æŠ¥å‘Šæœªè§£å†³ã€‚

@@ -1,0 +1,37 @@
+# Secrets / local runtime
+.env
+.env.*
+*.key
+*.pem
+*.p12
+*.pfx
+*.sqlite
+*.sqlite3
+*.db
+*.log
+
+# Private/raw data
+private/
+secrets/
+credentials/
+sessions/
+camera/
+captures/
+raw-chat/
+serein-data/
+
+# Runtime/cache
+__pycache__/
+*.pyc
+.venv/
+venv/
+node_modules/
+.cache/
+tmp/
+temp/
+
+# OS/editor
+.DS_Store
+Thumbs.db
+.idea/
+.vscode/
