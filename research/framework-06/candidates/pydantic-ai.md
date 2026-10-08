@@ -1,41 +1,251 @@
-YªçŠx-®éÜj×¢ëiºÚ+Š§j[h‘éÜ¢éí×]·ñ:-jZ.¶›­–)Ş³Sâ##bÓÓ‚K‹¾z©~Xú>KúîjÚ>[›nXùhêŠë®KˆâD$õ2˜xŞ˜xşijŞŠˆûÉ¾xëŠÎXúş˜k)zëş‹>[ªnˆ;ŞX©¾š¾hÈyºîj~x˜iÊÎjùN‹è>ûÈÎKˆŞKº^iÊÎŠ[n‹J>K»¾XZ˜:š(NZé®K‹®ˆz®[»®8.Šx¾[˜:ZHŞj…Ò‚ââşK‹¾z©~Xú>ZHŞj‚Ó##bÓÓ‚æÖB8  ¢2g&ÖWv÷&²ÓbX	˜KéŞhÚâ+r–FçF–4ûÈ„6÷&R²†&æW72Xø®[ø^Šh˜XŞZY~ûÈ ¥7FGW3¢$U4T$4‚ô4äD”DD^ûÈ†g&ÖWv÷&²ÓbX	˜KéŞhÚîûÈûÈÎiz^iÉò##bÓÓ~ûÈ„6–õ6†æv†ûÈ8 ®hš~ŠÎûÉ¤†W&ÖW2ZÙKº>yn8.ˆÈ>Y»NûÉ®Zéikih~j>ûÈşk©zXú®Šû¾jZû’²iz.iÈXéşYè¾ŠøhÚîûÈ†g&ÖWv÷&²ÓBó^ûÈ˜	iÚZûxZ~ûÉ²¢®iÊ®ZèŠ8^KéŞ‹Yn8iÊ®‹yXéşYè²şKª~Y8kX¾Šù^8iÊ®‹ùîhê^jŠYè¾h‰niÈŞXª8iÊ¢54‚ş˜:{Û"şhùKªB¢®8 ®ŠûNiˆîûÉ®iÊÎih~K»nXú®Šhny¹b–FçF–4’X	˜ûÈÎKˆŞiKXiiz~hª^Y®8KˆŞiKK»¾KÙ^X[Kª¾jÚ>ih~8.h˜iÈXŠNijŞj~k:[.jÊûÉ  ¢Ò¢®)jniënj[ø>XéşyIò¢®ûÈ†–FçF–2Ö’×6Æ–Öò–FçF–2Ö–ûÈ¢Ò¢®)ZéikXúş˜ˆ;ŞX©¾h‰n˜:{Û.["¢®ûÈ†–FçF–2Ö’Ö†&æW76h‰bGW&&ÆRVæv–æRõT’˜.˜XŞûÈ¢Ò¢®).[{.iÈšyºî‹XNKªr¢®ûÈ†g&ÖWv÷&²ÓBóRXéşYè¾˜xÎyKšyºîˆz®Xi8š¨ÎŠø˜	®‹ø~y¨NZIn[.K»nûÈ¢Ò¢®)>[ø^ŠhikZ)î˜.˜XÒ¢®ûÈhê^iX^kˆ®[ø^š¾ikXiûÈÎjniënKˆŞhùKé¾ûÈ¢Ò¢®)N[	®{Ë®h‰niÊ®š¨Â¢®ûÈjniënizjÚNˆ;ŞX©¾ûÈÎh‰nXú®iÈih~j>Z;z{8iÊÎšyºîiÊ®š¨ÎûÈ ¢¢®iz~XéşYè¾[{.š¨Â¢¢Òg&ÖWv÷&²ÓBóRKùŞZÙy¨N‹ùŠÎŠøhÚî˜xÎZéî™˜^‹y‹ø~ûÉ²¢®xëŠÎih~j>Z;z{¢¢Ò##bÓÓriú^™ˆ^y¨Nk¹®XªZéikih~j>høş‹ûûÈÎiÊ®YÊiÊÎšyºîY»®Zé®x˜iÊÎKˆ®‹ùŠÎ8  ¢ÒÒĞ ¢22â{¹>Šë®iŠh £â¢¤6÷&Rˆ;Şy»Nhê^h›şh¸^K‹¾‹ùŠÎXh^j‚¢®ûÉ¦vVçFûÈ‡G—VBvVçBÆö÷ûÈ8'Væö'Vå÷7–æ6ö'Vå÷7G&VÕöWfVçG68[z^X[~[ê®xêş8FW5÷G—V¶'Vä6öçFW‡FKéŞ‹Ynk:XZ^8ÖW76vUö†—7F÷'–KÉ®ŠùŞ{ºŞhê^86æ6VÆÆF–öåFö¶Væö7G‚æ6æ6VÂ‚–XùnkhKˆâ'Vä6æ6VÆÆVF{¹>iÙşŠúŞK˜ûÈÎYØ~[î)ûÉ¾izr'Vå6VvÖVçFjŠYè²ş[z^X[~[ê®xêş8v—Bö–FÆRŠúŞK˜YÊˆ;ŞX©¾Kˆ®Xúş˜X{®ûÈXùnkhZK‹J^Xú®Šhny¹n(	Î˜XŞYXùnkh(	Şy¨N[z^X[~ûÈÎŠx*s>ûÈ8 £"â¢¤†&æW72ã3bãhùKé¾Y¹¾K»nX[>™JîZéikK»b¢®ûÈYØ~)ûÈÎK‰Bg&ÖWv÷&²ÓBóR[{.Zéî‹yûÈûÉ¦7V$vVçG6ZyNkKî8f–ÆU7—7FVÒ‡&ö÷EöF—#Òâââ–‹zş[èN™™X‹nih~K»n[z^X[~8FööÄ÷WGWDÆ–Ö—G6¶7–ÆÆ¶&VE÷FööÅ÷&W7VÇFZJ~{¹>iéÎ‰Şy¹‚şŠû¾Y¹î87FWW'6—7FVæ6V‹[x+[ú¾xZr¾[z^X[~iXiéÎ‹JniÊÎûÈ…5Æ—FRzØûÈ8 £2â¢®KÉ®ŠùÒş™[şiÉşx«nh¢®ûÉ¤6÷&RyJ‚ÖW76vUö†—7F÷'“Ö²ÖöFVÄÖW76vW5G—TFFW&ûÈ„¥4ôâ&÷VæB×G&—ûÈ’²6öçfW'6F–öåö–Fö'Våö–Fj~ŠønûÈ)ûÈûÉ¾k*iÈ(	ÇF‡&VBşKÉ®ŠùŞZû‹(	ŞûÉ´†&æW727FWW'6—7FVæ6VyJ‚6öçfW'6F–öåö–FXˆn{¸N[›nhùKé¾Xúş{ºÒşXúòf÷&²[ú¾xZ~KˆâFööÂÖVffV7BÆVFvW.ûÈ)ûÈ8.iz~XéşYè²¢®Xú®š¨ÎK¨n(	ÎZIn[.Šë[ÙR¾KÙÎY8{ºŞX®(	Ò¢®ûÈÎiÊ®š¨Î[¨şX‰~XÉbÖW76vUö†—7F÷'–h.ZHŞûÈŒ*s2YË®išó>ûÈ8 £Bâ¢®hÈK˜^hš~ŠÎKˆŞiŠò6÷&Rˆz®[Šb¢®ûÉ®iŠò6÷&Ry¨BGW&&ÆRW†V7WF–öâˆ;ŞX©¾ûÈÎ[ø^š²¢®hê^KˆKŠ¢Væv–æR¢®ûÈÎK‰B¢®jøòvVçBhZ[ŞKˆKŠ¢Væv–æR¢®8.ZéikiJşhÈ‚KŠ®ûÉ¥FV×÷&ÂôD$õ2õ&VfV7NûÈKˆîXè.YXnX[YÎ{»NhªNûÈ8&W7FFRôu2ÆÖ&FûÈÎXø¢¶—F'Rô—&fÆ÷rô'7W&NûÉ¾XúniÈ’&6¶VæB'V–ÆFW.8"¢¤D$õ2iŠş[©>Xh^‹ù¾zˆ¾Xh^‹ùŠÂ¢®ûÈXú®™ÈKˆKŠ®{;¾{¹şi[hÚî[©>ûÈûÈÅFV×÷&Âõ&VfV7B™ÈŠhYNˆz¢6W'fW"şiÈŞXª8.iz~XéşYè²¢®iÊ®hê^K»¾KÙRGW&&ÆRVæv–æR¢®ûÈ)NûÈ8 £Râ¢®Zé®i{nKˆîiÚK»n‹>[ªnûÉ¤6÷&RKˆâ†&æW72˜;Şk*iÈXéşyIşˆ;ŞX©¾ûÈ)NûÈ’¢®8&–FçF–2Ö’Ö†&æW76y¨B(	Å66†VGVÆVBvVçBW†V7WF–öâ†7&öâòF–ÖRÖ&6VBG&–vvW'2(	ÒK¸ŞiŠò¢®iÊ®Y[›ny¨B—77VR3¢®ûÉ¶6÷&RKªniÈZû[©B÷Vâ—77V^8.‹ùiŠşiÊÎX	˜Zû(	ÎyÉşZéîi{nX‹²şiÚK»nYJN˜i.(	Şy¨B¢®j[ø>{Ë®Xú2¢®ûÈÎiÈ[ş˜XŞZY~iŠşZIn˜:‹>[ªnYš‚²šyºîˆz®Xiy›¾ŠëşXë¾˜xÒşŠ^j8ûÈ)>ûÈ8 £bâ¢¤„•DÂşZêh›KˆîXù~hê~hš[^x+›ÙZHr¢®ûÉ¦&WV—&W5ö&÷fÃÕG'VV8&÷fÅ&WV—&VF8FVfW'&VEFööÅ&WVW7G6öFVfW'&VEFööÅ&W7VÇG68†æFÆTFVfW'&VEFööÄ6ÆÇ686ÆÄFVfW'&VFûÈZIn˜:hš~ŠÎûÈK‹®)ûÉ¾ˆ;ŞX©¾yIşYŞYiÉò†öö¾ûÈ†&Vf÷&U÷'VâögFW%÷'Vâ÷w&÷'Væ8&Vf÷&RögFW"÷w&÷FööÅöW†V7WFV8&Vf÷&UöÖöFVÅ÷&WVW7F8†æFÆUöFVfW'&VE÷FööÅö6ÆÇ68öå÷'VåöW'&÷&ûÈK‹®)8&g&ÖWv÷&²ÓR[{.Zéî‹y'7G&7D6&–Æ—G’ægFW%÷FööÅöW†V7WFVKˆâ&ö6W74†—7F÷'–ûÈ)¾)2˜.˜XŞûÈ(	N(	B¢®‹ùiŠş˜	.XZR7W'&VçBKˆîzÛîXù&V6V—By¨NX	˜Xù~hê~x+’¢®ûÈÎKØn(	Ç&V6V—N(	ŞiÊÎ‹ª¾KˆŞiŠşjniënjh.[û^ûÈÎš¾ikXiûÈ)>ûÈ8 £râ¢®X˜Şzºş‹ëyXÂ¢®ûÉ¦T”FFW&ûÈ„rÕT8fW&6VÂ’KŠNzxŞXØşŠêîûÈ‹Iş‹J2'Vâ–çWB(iBvVçBç'Vå÷7G&VÕöWfVçG2‚–(iB54R{ÉnzûÉ¾XúşYÊ(	ÆvVçBKˆŞYÊŠû~k.Xh^‹ùŠÎ(	Şi{nyJ‚T”WfVçE7G&VÖXÙ^xºÎ{ÉnzûÈ)ş)ûÈ8.˜.˜XŞYšzºşx+’¢®KˆŞiŠş˜›NiØ>‹ëyXÂ¢®ûÈÎš¾iKî‹ù¾ˆz®iÈ˜›NiØ>‹zşyKûÈ)>ûÈ8 £‚â¢®iÈ[ş{¸NY‚¢®ûÉ®‹y[é~‹[~iÚ^Xú®™È–FçF–2Ö’×6Æ–Õ³Ç&÷f–FW#åÖûÈ)ûÈûÉ¾yJX‹y¨B†&æW72ˆ;ŞX©¾XhŞXÙ^Xª–FçF–2Ö’Ö†&æW76ûÈ)ûÈûÉ¾Xú®iÈ™ÈŠh(	Â¢®YÎKˆ'Vâ[z^X[~KŠŞ˜	N[Jk¨>{ºŞ‹y¢®(	Şh˜ŞXhŞ˜’¢®KˆKŠ¢¢¢GW&&ÆRVæv–æ^ûÈ)ûÈÄD$õ2K‹®X	˜ûÈÎiÊ®jZéîZèÎi[N{¸NYiÈ‹Û¾ûÈûÉ¾Zé®i{bşZIn˜:j8kX¾YÊK»¾KÙ^h8^Xk^Kˆ¾˜;ŞiŠò¢®ZIn˜:h‰nˆz®Xi’¢®ûÈ)N(i.)>ûÈ8 £’â¢®iz~XéşYè¾[{.š¨Âg2xëŠÎih~j>Z;z{ûÈX[>™Jî[zî[È.ûÈ’¢®ûÉ¦–FçF–5ö’çv÷&·76W6öÆö6Åv÷&·76VöW†V7WF–öäVçf—&öæÖVçF8ÖVÖ÷'–86öçfW'6F–öå6V&6†86¶–ÆÇ68wV&G&–Ç>86öFTÖöF^8YB6æF&÷8FVfW'&VBFööÇ>8GW&&ÆRVæv–æRzØYØ~K‹¢¢®xëŠÎk¹®Xªih~j>Z;z{¢®ûÈÂ¢®iÊ®YÊY»®Zé¢6÷&R"ãSãò†&æW72ã3bãKˆ®š¨ÎŠø¢®ûÉ¶g&ÖWv÷&²ÓB[{.Šë[Ù^(	Ä6÷&R"ãSãKŠÒ–FçF–5ö’çv÷&·76W6ZûÎXZ^KˆŞXúşyJ(	ŞûÈÎiX^kZîXªih~j>y¨Bv÷&·76RiÊşŠúŞKˆîY»®Zé®x˜iÊÎKˆŞXúşk{~yJ8 £â¢®KˆâE"Ó"Kˆˆ{NûÈÎizXk.z¨¢®ûÉ®iÊÎX	˜(	ÎXúşh›şh¸^K‹¾‹ùŠÎXh^j‚²˜.yJ‹>[ªbşh.ZHŞKªNjniëbş˜XŞZY~(	ŞûÈÎKˆâE"Ó.(	ÎiX^kˆ®KˆŞ[ø^ˆz®[»¢v¶RÆö÷8‹ùŠÎZëşK‹¾XúşKªNjniën(	ŞKˆˆ{NûÉ´E"Ó"*~(	ÎXéşyIşˆ;ŞX©¾[.jÊjZû(	ŞZû’–FçF–4’GW&&ÆRW†V7WF–öây¨NŠûNk9^KˆîiÊÎjÊxëŠÎih~j>jZûy»zÊnûÈ[âVæv–æR[.ûÈÎKˆŞiŠò6÷&Rô†&æW72[z^X[~[ê®xêşˆz®[ŠnûÈ8  ¢ÒÒĞ ¢22âx˜iÊÎKˆîiÚ^k©Š€ §ÂXÈRşih~K»bÂx˜iÊÂòFrò6öÖÖ—BÂiú^™ˆ^iz^iÉòÂiÚ^k©™;îhêRÀ§ÂÒÒ×ÂÒÒ×ÂÒÒ×ÂÒÒ×À§Â–FçF–2Ö’×6Æ–ÖûÈ„6÷&^ûÈ’Â¢£"ãSã¢®ûÈiz~XéşYè¾Yû®{«şûÈ’Â##bÓÓrÂXéşYè¾™Hih~K»bC¢ö6öFW‚÷&÷F÷G—W2ög&ÖWv÷&²ÓB÷–FçF–2Ö’÷&WV—&VÖVçG2æ–æ8&WV—&VÖVçG2æÆö6¶8–ç7FÆÂæÆövÀ§Â–FçF–2Ö’×6Æ–Öc"ãSãXù[ˆ>iz^iÉòÂ##bÓ’Ó#^ûÈ„v—D‡V"&VÆV6^ûÈ’Â##bÓÓrÂ‡GG3¢òöv—F‡V"æ6öÒ÷–FçF–2÷–FçF–2Ö’÷&VÆV6W2À§Â–FçF–2Ö’Ö†&æW76Â¢£ã3bã¢®ûÈiz~XéşYè¾Yû®{«şûÉ¶&WV—&VÖVçG2æ–æ{+îzî™HZé®ûÈ’Â##bÓÓrÂXéşYè²&WV—&VÖVçG2æ–æö&WV—&VÖVçG2æÆö6¶ö–ç7FÆÂæÆövûÉ¾k¹®Xªih~j2‡GG3¢ò÷–FçF–2æFWböFö72ö’ö†&æW72òÀ§Â–FçF–2Ö’Ö†&æW76x˜iÊÎzÙnyZRÂçûÉ¦Ö–æ÷"XúşY
-²'&V¶–ær6†ævRÂ##bÓÓrÂ‡GG3¢ò÷–FçF–2æFWböFö72ö’ö†&æW72òûÉ¾K¹>[©2$TDÔRÀ§ÂKÊ˜	.KéŞ‹YnûÈiz~XéşYè¾ûÈ’Â÷Væ“ÓÓ2ã#Bã8–FçF–3ÓÓ"ã2ãV8–FçF–2Öw&ƒÓÓ"ãSã8‡GGƒÓÓã#‚ã8ç––óÓÓBãRãÂ##bÓÓrÂ–ç7FÆÂæÆövûÈƒ3KŠ®™HZé¢F—7G&–'WF–öîûÈ’À§Â6÷&^ûÉ¤vVçBò'VâÂ–FçF–5ö’ävVçF8'Væö'Vå÷7–æ6ö'Vå÷7G&VÕöWfVçG6ö—FW&Â##bÓÓrÂ‡GG3¢ò÷–FçF–2æFWböFö72ö’ö’÷–FçF–2Ö’övVçBòÀ§Â6÷&^ûÉ®KéŞ‹Ynk:XZRÂFW5÷G—SÖ8'Vä6öçFW‡E²ââåÖ87G‚æFW6Â##bÓÓrÂ‡GG3¢ò÷–FçF–2æFWböFö72ö’ö6÷&RÖ6öæ6WG2öFWVæFVæ6–W2òÀ§Â6÷&^ûÉ®khhşXènXû"ÂÖW76vUö†—7F÷'“Ö8ÆÅöÖW76vW2‚–öæWuöÖW76vW2‚–8ÖöFVÄÖW76vW5G—TFFW&86öçfW'6F–öåö–Fö'Våö–FÂ##bÓÓrÂ‡GG3¢ò÷–FçF–2æFWböFö72ö’ö6÷&RÖ6öæ6WG2öÖW76vRÖ†—7F÷'’òÀ§Â6÷&^ûÉ®Xùnkh‚ş{¹>iÙòÂ6æ6VÆÆF–öåFö¶Væ8'Vä6öçFW‡Bæ6æ6VÂ‚–8vVçE'Vâæ6æ6VÂ‚–8'Vä6æ6VÆÆVBæÆÅöÖW76vW2‚–Â##bÓÓrÂ‡GG3¢òöv—F‡V"æ6öÒ÷–FçF–2÷–FçF–2Ö’ö&Æö"öÖ–â÷–FçF–5ö•÷6Æ–Ò÷–FçF–5ö’òævVçG2÷6¶–ÆÇ2ö'V–ÆF–ær×–FçF–2Ö’ÖvVçG2÷&VfW&Væ6W2ô”åUBÔäBÔ„•5Dõ%’æÖBÀ§Â6÷&^ûÉ¤†æFÆW"şZêh›’Â†æFÆTFVfW'&VEFööÄ6ÆÇ68FVfW'&VN¶ßËh‘éì¶»§q«^tİYÙ\ˆ
-È\Y˜Xİ9âb9§+ùdâ9n#;ï&ù¨a¹§­¹æ¡\˜X›KÜİ\:+¬9oeJŠ¹.#z+ày¦#¹.&¹b¨yk£9¢$
-Š»ï"8¤hÈ9.&¹b¨yk£9¢$:j£9ç'ûï"xà ‚‚‹H
-Š¹c§ùå'ú)¡¹æåŠŠ»ï&¹/&º+çyn£ùb%ùc%º/®yåc;ï"8¤h;ï"xà \Ù]Y:-l9à®yoêùáiù.#¹¥b9§§:-)¹§+;ï"8¤h{ï"xà ‚‹H
-Š¹ï.¹cèÊŠ»ï&¹d#[ˆ9méyamù.+z`%9m*y® ù h¹i#z) z!êº`"ynm¹£©y. 9.*ˆ[™Ú[™{ï"8¤h{ï#9§*ºj£;ï"{ï&ú-ê:/æùê"ù h¹i#HÜ[[™xà yc¡¹cìº/k¹¦(9l!8à ze&z+ëù`g9à®y§*ºj£;ï"œ˜[Y]ÛÜšËLH0©Ìûï"{ï&ù.&¹b¨x '9ç'ùk§¹k£9¢$8 'zhnù¢iú(c9êëùîäù§§
-È™XÙZ\;ï"8¤hûï"xà ‚‹H
-Š¹i,z-)Kù§*¹çéJŠ»ï&™œ˜[Y]ÛÜšËL9æ¡Y™™Xİ9m*y® ù¦+ÊŠ¹âë9êâÈ]Û‹Ò”ÓÓˆ9ª(y¢çÊŠ»ï#9.#yîãù`&z`"HYÙ[İÛÛ9 h¹i#z-ëùo¡;ï#9.#z ïy.#¹ç'ùk§¹m*y® ùëbyd#;ï&Óˆ9§*¹ç'ù«hùa¦y."ù. :f-¹«­xà ‚‹H
-Šº+ày£kŠŠ»ï&˜˜[Y][Û‹šœÛÛ˜;ï"Y™™XİÜ™XÛİ™\xà SKÓ»ï"{ï&Ø]šY[˜ÙKÛÛ™ËYš\œİœİİ]8à XÛ™Ë\ÙXÛÛ™œİİ]8à XZYÜ˜]KYœ™\Úœİİ];ï&Ùœ˜[Y]ÛÜšËLH™\İ[Ë\ZKšœÛÛˆÍP˜;ï&Ôİ\\œÚ\İ[˜ÙH9k¦9¨høà ‚‚‹KKB‚ˆÈÈˆ9§ 9l#ùîá9d"9.#¹ç'ùk§¹bjy/fyméy/g‚ŠŠ¹§ 9l#ùîá9d";ï"9£"yå*:`%9b!¹î©ûï"JŠ‚‚‹H:-äy..ù/&º+çKùméyamùoª¹ã«Ëù/§z-e¹¬ê9aiKù/&º+çyîëy£©Kùcå¹­¢;ï&¹cêºg 
-Š¸¤hY[XËXZK\Û[VÏ›İšY\—X
-Š¸à ‚‹H9å*9k¦9¥®y¥¡ù.í¹méyamøà yi)ùîäù§§:$/yææ:+îùfç¸à yiå9­/¹kd9.èùä!¸à z-l9à®y£ y.ayc%»ï&¹b¨
-Š¸¤hXY[XËXZKZ\›™\ÜØ
-Š»ï"š[TŞ\İ[X8à XÛÛİ]][Z]Ø8à XİXYÙ[Ø8à Xİ\\œÚ\İ[˜ÙX;ï"xà ‚‹H:g :) x '
-Š¹d#9. [ˆ9méyamù.+z`%9m*y® ùîëz-äJŠ¸ '{ï&¹a£yb¨
-Š¹ l9ioy. 9.*ŠŠˆ\˜X›H[™Ú[™{ï"8¤h{ï#Y[XËXZK\Û[VÙ›Ü×X9§ :/nø %8 %9n¤ùa¡z/æùê"ùa¡H
-È9ìîùîçÈ»ï&Øİ[\Ü˜[XÔ™Y™Xİ:g 9d!:!êˆÙ\™\»ï"xà ‚‹H9k¦¹¥í¹.#¹i%º`ê9cæ9c%¹¨à9­bûï&ŠŠ¹.#yg*9¨a¹§­¹a¡JŠ»ï"8¤i;ï"{ï#9oázhnùi%º`ê:, ùn©ˆ
-È:hnyæëº` ºac{ï"8¤hûï"xà ‚‚ŠŠº) ya¦y.à9.b:` ºac{ï"8¤hûï"JŠ‚‚ŒKˆ9.îùb¨Kùkd9.îùb¨Kùe):a¤¹æ¡9.&¹b¨yl`»ï&œİX›Z]Üİ]\ËØØ[˜Ù[Ü™\İ[8à yn`¹ëbze+¸à XXİÜ‹Ü\™[8à y«ãù.îùb¨y£¢9§`øà y§iy®¤9.#º/ä:(c9o%yå*8à yk¨zf!y.¢ù.í»ï&ù¥éÈ\ÚÔİÜ™X9.#z ïyæí9£©yodù.©ùdàHØÚ[Xxà ‚Œ‹ˆ9k¦¹¥í‹ù§hy.í¹ænú+¬9.#¹i%º`ê9cæ9c%¹¨à9­bûï&¹ænú+¬ùcå¹­¢ùc®úaãKúaãyd+ú(iy¨à8à y¥l9£k¹£©yaixà y§hy.í¹b)9¥«{ï&ù.#¹k§ºfay¢iú(cú`&¹çéyb!¹o 8à ‚ŒËˆ]]Üš]KÜ™XÙZ\;ï&¹gçùa¡ya¬ùk¦º !xà XXİÜ‹ØØ\Xš[]KÜØÛÜH9¨(zj£8à y£ y.ayk¨z+¨H™XÙZ\8à z-ê:/æùê"ù¨(zj£ùi,y¥b;ï&ø '9ª(yg¢ù«hù¥¡ù.#yo¥ú!ê¹¢©ymì¹£¢9§`Ëùk£9¢$8 'xà ‚ˆ9bcyêëú/®yåc;ï&¹¢¢ˆRPY\\˜ØRQ]™[İ™X[X9¥/º/æú!ê¹§"zbm9§`ú-ëùå,{ï&ù..ùbª9îäù§§ù¥è9¥¡ù§+9îäù§gùæ¡:`$¹fç¸à y¥«yî¯úaãz/ç¸à ]™XYÜ[ˆ9alú e8à ‚Kˆ9ç'ùk§¹méyamù.#ºf¥9é®ûï&”Ú[ù­cú)â9fjùïdyîç9méyamúhnùcéº`"ynm¹å,HÔËùk®yfj:fd9§`ûï"š[TŞ\İ[Kœ›ÛİÙ\˜
-Š¹cêºfd9¥¡ù.í¹méyamûï#9.#y¦+úf¥9é®ÊŠ»ï"{ï&ùª(yg¢ùaî¹cèùîãÈÙ\™Z[»ï"9§*ºj£;ï"xà ‚‚ŠŠ¹.©ùâjyå,z, y£©y¥-ŠŠ»ï&¹..ù/dËùkd9.èùä!¹.©ùâjz/æÊŠ¹i%¹l`ˆ\Y˜XİİÜ™JŠ»ï"9âb9§+ùdâ9n#ù§iy®¤;ï#8¤h¹cëù¬¯ùå*;ï"{ï&ú/ä:(c9  yoêùáiùå,Hİ\\œÚ\İ[˜ÙXİÜ™{ï"8¤h{ï"y£ y§"{ï&ù.£: !yæ¡9od¹lg¹.#¹ç'ù®¤:/®yåc9å,y.&¹b¨yl`¹a¬ùk¦»ï"8¤hûï"xà ˜İ\\œÚ\İ[˜ÙX9æ¡[‹ØÚXÚÜÚ[Q9.#ˆY\ÜØYÙH\İÜH
-Š¹.#ycëù/g9..º-ê9¢iú(c9fj9cëùéîù©#y¢$9§§9idyî©ŠŠ»ï#9cëùéîù©#yæ¡9¦+ùi%¹l`ˆ\ÚËØ\Y˜Xİ9idyî©»ï"œ˜[Y]ÛÜšËL9i#y¨.;ï"xà ‚‚‹KKB‚ˆÈÈKˆ:`ê9ïl¹.#º-a9®¤9î©¹§gûï"9cê¹a¦yîá9¢$ùn.:jnú/æùê"Ëùi%º`ê9/§z-e‹úacyïkº/®yåc;ï#9.#yîæy¥l9keûï"B‚‹H
-Š¹îá9¢$
-Š»ï&¹. 9.*ˆ]ÛˆÛÜšÙ\ˆ:/æùê"ù¢oú/oHYÙ[[»ï"8¤h;ï"{ï&ùcëú`"yd+ùå*\›™\ÜÈ: ïyb¦ûï"8¤h{ï"y/&ºh§yi%¹.©ùå'ùèàyææ9¥¡ù.í»ï"Ü[:$/yææ9.£ˆœY[XËXZKZ\›™\ÜËØ9¢%º!ê¹k¦ˆ›Ûİ;ï&Ôİ\\œÚ\İ[˜ÙH9å*ÔS]Kù¥¡ù.í‹Ó[Û™ÛÑ»ï"xà ‚‹H
-Š¹n.:jnú/æùê"ÊŠ»ï&‚ˆH9cêº(áHÛÜ™{ï&ŠŠ¹¥è:h§yi%¹n.:jnùk¢9¢©:/æùê"ÊŠ»ï#:/æùê"ùclù. 9«(H[¸à ‚ˆH9£©H“Ôûï&ŠŠ¹n¤ùa¡z/æùê"ùa¡JŠ»ï#9¥è9âë9êâÈÙ\™\»ï#9/a¹/§z-e¹. 9.*ŠŠ¹ìîùîçù¥l9£k¹n¤ÊŠ»ï"9nmº!ê¹n)ˆ]Y]Y\ËĞÜ›Ûˆ9..¹cëú`"{ï"xà ‚ˆH9£©H[\Ü˜[;ï&ŠŠºg :) H[\Ü˜[Ù\™\ˆ9n.:jnÊŠ»ï"9§+9g,9¢%¹âë9êâù§#yb¨{ï"{ï#ÛÜšÙ\ˆ:/ç¹amˆ\ÚÈ]Y]Yxà ‚ˆH9£©H™Y™Xİ;ï&ºg 9amˆÙ\™\‹ú`ê9ïl¹l`¸à ‚ˆH:, ùn©‹ùi%º`ê9¨à9­bûï&ŠŠ¹¨a¹§­¹i%ŠŠ»ï#:hnùcéº+¯º, ùn©¹fj;ï"9ìîùîçÈÜ›Û¸à yk®yfj:, ùn©¹¢%¹¢`:`"H[™Ú[™H9æ¡Ü›Û»ï"xà ‚‹H
-Š¹i%º`ê9/§z-eŠŠ»ï&¹ª(yg¢È›İšY\»ï"9§+:hnyæë¹îãÈÙ\™Z[»ï"{ï&Ù\˜X›H[™Ú[™H9æ¡9§#yb¨Kù¥l9£k¹n¤ûï"9£"y¢`:`"H[™Ú[™{ï"{ï&Ú\›™\ÜÈÜ[İÜ™H9æ¡9èàyææ;ï&ÕRH:` ºacy/§z-eˆİ\›]KÑ˜\İTH9å'ù  {ï":"éz-l9amˆ\Ü]ÚÜ™\]Y\İ;ï"xà ‚‹H
-Šºacyïkº/®yåc;ï"9./¹/¢ûï#9gaùk¦9¥®y¥¡ù¨hùhì9éì;ï"JŠ»ï&˜š[TŞ\İ[J›ÛİÙ\‹[İÙYÜ]\›œË[šYYÜ]\›œË™XYÛÛ›WÜ]\›œËÛÛËÛÛ[Ú\Ú\ÊX8 %8 %›ÛİÙ\˜
-Š¹.#y¦+ÈÔÈ9¬¦yë¬JŠ»ï#Ú[9.#ycåùam¹î©¹§gûï&ØÛÛİ]][Z]Ê˜[™Ë\—İÛÛİÜ™KÙ\šX[^™\ŠX;ï#:næ:+©Ü[:f"9`/L9keùë)¸à znæ:+©İÜ™HØØ[š[TİÜ™X;ï"Ì8à y¢ä¹îçz-¢¹åc[™{ï"{ï&Ù\˜X›H9îí9n©¸ '
-Š¹«ãÈYÙ[9 l9ioy. 9.*ˆ[™Ú[™JŠ»ï#:(áyë+9.£9.*¹clÈ\Ù\‘\œ›Ü˜8 'xà ‚‹H
-Š¹.#ya¦JŠ»ï&¹a¡ykfùméy§'Ëú" ¹ç y«å9/¢ËÕ”È9nm¹cäy¥l9keøà ¹¥éùc§ùg¢ùcê¹îæyaîŠŠ¹§+9§.ˆÚ[™İÜÈ9k¦¹ )ú)à¹kçÊŠ»ï"œ˜[Y]ÛÜšËLH0©Í;ï#9¨-ù§+x $ÌÈ9à®{ï"{ï#
-Š¹.#z ïyi%¹£ª
-ŠˆX[H”È9lì9`/9¢%¹nm¹cä{ï"”È9k®zaãù¥¡ù¨hù¦#¹èk»ï"xà ‚‚‹KKB‚ˆÈÈ‹ˆ9§*ºj£:hny®!yceH
-È9. :hny§ 9l#ùé®ùî¯új£:+àynîº+«‚‚ŠŠ¹§*ºj£:hn{ï"9¥éùc§ùg¢ù§*¹cå¹o¥ú/ä:(c:+ày£k¹¢%¹ã¬:(c9¥¡ù¨hùhì9éì9§*¹g*9§+:hnyæëº-äz/áûï"JŠ‚‚ŒKˆY[X×ØZKÛÜšÜÜXÙ\ØØØØ[ÛÜšÜÜXÙXØ^Xİ][Û‘[š\›Û›Y[;ï&ÛÜ™H‹LKŒ9.+HY[X×ØZKÛÜšÜÜXÙ\Ø
-Š¹kï9aiy.#ycëùå*
-Š»ï"œ˜[Y]ÛÜšËL:+¬9oe{ï"{ï&ù­k¹bª9¥¡ù¨hùæ¡ÛÜšÜÜXÙH9§+ú+ëJŠ¹.#yieù/g9fî¹k¦¹âb9§+9mìºj£:+àz ïyb¦ÊŠ¸à ‚Œ‹ˆ\˜X›H^Xİ][Û»ï&ŠŠ¹§*¹£©y.îù/eH[™Ú[™JŠ»ï&ùd#[ˆ9méyamù.+z`%9m*y® ùîëz-äy§*ºj£;ï&ùç'ùk§¹bkù/g9å*9kîz-)¹§*ºj£8à ‚ŒËˆY\ÜØYÙWÚ\İÜX9æ¡
-Š¹n£ùb%ùc%¹o :/å9 h¹i#JŠ¹§*ºj£;ï"9¥éùc§ùg¢ùcêºj£9i%¹l`º+¬9oey¬ê9aiH
-È9¥¬[»ï"xà ‚ˆUùk¨y¢n{ï"™\]Z\™\×Ø\›İ˜[ØY™\œ™YÛÛ™\]Y\İØØØ[Y™\œ™Y;ï"xà XY[[ÜX8à XÛÛ™\œØ][Û”ÙX\˜Ú8à QİX\™˜Z[øà PÛÙS[Ùxà yd!Ø[™›Ş;ï&ŠŠ¹ã¬:(c9¥¡ù¨hùhì9éì8à y§*¹g*9§+:hnyæëº/ä:(c
-Š¸à ‚Kˆ9­`yo#ËÔÔÑH9.©ùdàz/®yåc;ï&™œ˜[Y]ÛÜšËLH9¨jy¥+ù£ HÔÑ{ï#9/a¹.©ùdày­`yo#Ëù¥«yî¯úaãz/ç¹§*º-äxà ‚‹ˆİXYÙ[Ø9£¢9§`ú# ùfí9o.¹b-»ï"Ú[:-¢¹§`ú+îûï"xà yo ¹«iyd#¹cìÚ[8à SÔËùk®yfj:f¥9é®ù§*ºj£8à ‚Ëˆ9ç'ùk§¹ª(yg¢ËÔÙ\™Z[‹ùïdy¤'ù­cú)â9fj8à yç'ùk§¹méyamù.#¹i%º`ê9bkù/g9å*8à z-ê9¢iú(c9fj9.©9£©ygaù§*ºj£8à ‚‚ŠŠ¹. :hny§ 9l#ùé®ùî¯új£:+àynîº+«»ï":gfy  y§d9¥¦y¥è9¬åyfç¹ëe9æ¡9alúe+¹à®{ï&¹d#9. [ˆ9méyamù.+z`%9m*y® ùæ¡9 h¹i#y.#¸ '9mì¹`f¹bª9/g8 'yb)9k¦»ï"JŠ‚‚‹H
-Š¹nîº+«ŠŠ»ï&¹g*9é®ùî¯øà ycêº/ç¹§+9§.º!&¹§+9c%¹ª(yg¢ù¨jxà y.#y£©y.©ùdàKÔÙ\™Z[ˆ9æ¡9bcy£ä9."ûï#9§¡:`(9. 9.*¹§ 9l#ÈYÙ[;ï&¹. 9.*ˆ\Ş[˜ÈÛÛ9ab9d$yi%¹l`¹¥¡ù.í¹a¦yaiy. 9.*¹n)¹a¡yk®ydâ9n#9æ¡8 '9¥b9§§:+¬9oex '{ï#9a£yg*9méyamÊŠ¹l&¹§*º/å9fçŠŠ¹¥í¹§`9«nú/æùê"ûï&úf£ùd#¹g*9d#9. Ü[]Tİ\İÜ™Xú!ê¹k¦ˆİÜ™H9."»ï#9å*İ\\œÚ\İ[˜ÙX9æ¡ÛÛ[XX›TÛ˜\Úİ9.#ˆÛÛYY™™XİYÙ\ˆ9b)9¥«z+éHÛÛØØ[ÚY9æ¡İ\YØÛÛ\]Y9â­¹  {ï#9nmº+ªy¥¬:/æùê"ù£k¹«i
-Š¹cêº+îùèkº+©ùîëy`fŠŠ»ï"9.#zaãyi#ya¦yai{ï"xà ‚‹H
-Šº`&º/áù§hy.íŠŠ»ï&»ï"{ï"zaãyd+ú/æùê"ú ïy.ãˆİÜ™H:+îùb,:+éHÛÛØØ[9æ¡:+¬9oe{ï#9.%: ïyc.¹b!¸ '9mì¹k£9¢$ù§*¹çéx '{ï&ûï"»ï"y.&¹b¨y/©ù£k¹«i9b)9k¦¹d#ŠŠ¹.#zaãyi#JŠ¹a¦yaiy¥b9§§:+¬9oe{ï"9¥¡ù.í¹dâ9n#9.#y¥¬9h§¹ë+9.£9âb;ï"{ï&ûï"ûï"z"éy¥.yå*\˜X›H[™Ú[™{ï#:g 9kîy«å9am¹g*:/æy§hz-ëùo¡9."¹¦+ùd)¹«åİ\\œÚ\İ[˜ÙH9¦í: ïyb)9k¦¹.+z`%9â­¹  xà ºgfy  y§d9¥¦y¥è9¬åyîæyaîº+éz`&º/áùîäú+®»ï#
-Š¹¥ay.áynîº+«»ï#9§*º/ä:(c
-Š¸à ‚‚‹KKB‚ˆÈÈ:fa;ï&¹.#¹.îùb¨ychHÈQ‹Lˆ9æ¡9a¬¹ê y¨à9§éB‚‹H9§*¹cäyã¬9.#¹.îùb¨ychH0©Íğ©ÍH9¢%ˆQ‹Lˆ9æ¡9a¬¹ê xà Q‹Lˆ0©ø '9c§ùå'ú ïyb¦ùl`¹«(y¨.9kîx 'ykîHY[XĞRH\˜X›H^Xİ][Û¸ '9lgˆ[™Ú[™H9l`¸à y.#z ïyå,HÛÜ™KÒ\›™\ÜÈ9§"yméyamùoª¹ã«ùæí9£©y£ª9k¦¹n.:jnùk¦¹¥í¹fj8 'yæ¡:+í9¬å{ï#9.#¹§+9«(y¨.9kîy. :!í8à ‚‹H9. 9i!
-Šº+ày£kº/®yåc9£ä9é.»ï":gg¹a¬¹ê {ï"JŠ»ï&’\›™\ÜÈŒÍ‹Œ9.áyå,y¥éùc§ùg¢úe y¥¡ù.í¹èkº+©;ï#9ak9o ™[X\ÙH9b%ú(j9§*¹b%ùb,:+éHYûï&ù§+9¢©ydb¹¢¢¸ '9ã¬:(c9®æ¹bª9¥¡ù¨hùhì9éì9æ¡: ïyb¦ø 'y.#¸ '9¥éùc§ùg¢ùfî¹k¦¹âb9§+9mìºj£: ïyb¦ø 'yb!¹b%ûï#9§*¹¢¢¹¥¬9¥¡ù¨hú ïyb¦ù`$¹ë¥ù..¹¥éùc§ùg¢ùmìºj£8à ‚
+> 2026-10-08 ä¸»çª—å£ä¿®æ­£å¹¶å‘æ¨è®ºä¸ DBOS é‡é‡æ–­è¨€ï¼›ç°è¡Œå¯é€‰æ²™ç®±/è°ƒåº¦èƒ½åŠ›é¡»æŒ‰ç›®æ ‡ç‰ˆæœ¬æ¯”è¾ƒï¼Œä¸ä»¥æœ¬è¡¨å°†è´£ä»»å…¨éƒ¨é¢„å®šä¸ºè‡ªå»ºã€‚è§ [å±€éƒ¨å¤æ ¸](../ä¸»çª—å£å¤æ ¸-2026-10-08.md)ã€‚
+
+# framework-06 å€™é€‰ä¾æ® Â· PydanticAIï¼ˆCore + Harness åŠå¿…è¦é…å¥—ï¼‰
+
+Status: RESEARCH/CANDIDATEï¼ˆframework-06 å€™é€‰ä¾æ®ï¼‰ï¼Œæ—¥æœŸ 2026-10-07ï¼ˆAsia/Shanghaiï¼‰ã€‚
+æ‰§è¡Œï¼šHermes å­ä»£ç†ã€‚èŒƒå›´ï¼šå®˜æ–¹æ–‡æ¡£ï¼æºç åªè¯»æ ¸å¯¹ + æ—¢æœ‰åŸå‹è¯æ®ï¼ˆframework-04/05ï¼‰é€æ¡å¯¹ç…§ï¼›**æœªå®‰è£…ä¾èµ–ã€æœªè·‘åŸå‹/äº§å“æµ‹è¯•ã€æœªè¿æ¥æ¨¡å‹æˆ–æœåŠ¡ã€æœª SSH/éƒ¨ç½²/æäº¤**ã€‚
+è¯´æ˜ï¼šæœ¬æ–‡ä»¶åªè¦†ç›– PydanticAI å€™é€‰ï¼Œä¸æ”¹å†™æ—§æŠ¥å‘Šã€ä¸æ”¹ä»»ä½•å…±äº«æ­£æ–‡ã€‚æ‰€æœ‰åˆ¤æ–­æ ‡æ³¨å±‚æ¬¡ï¼š
+
+- **â‘ æ¡†æ¶æ ¸å¿ƒåŸç”Ÿ**ï¼ˆ`pydantic-ai-slim` / `pydantic-ai`ï¼‰
+- **â‘¡å®˜æ–¹å¯é€‰èƒ½åŠ›æˆ–éƒ¨ç½²å±‚**ï¼ˆ`pydantic-ai-harness` æˆ– durable engine/UI é€‚é…ï¼‰
+- **â‘¢å·²æœ‰é¡¹ç›®èµ„äº§**ï¼ˆframework-04/05 åŸå‹é‡Œç”±é¡¹ç›®è‡ªå†™ã€éªŒè¯é€šè¿‡çš„å¤–å±‚ä»¶ï¼‰
+- **â‘£å¿…è¦æ–°å¢é€‚é…**ï¼ˆæ¥æ•…æ¸Šå¿…é¡»æ–°å†™ï¼Œæ¡†æ¶ä¸æä¾›ï¼‰
+- **â‘¤å°šç¼ºæˆ–æœªéªŒ**ï¼ˆæ¡†æ¶æ— æ­¤èƒ½åŠ›ï¼Œæˆ–åªæœ‰æ–‡æ¡£å£°ç§°ã€æœ¬é¡¹ç›®æœªéªŒï¼‰
+
+**æ—§åŸå‹å·²éªŒ** = framework-04/05 ä¿å­˜çš„è¿è¡Œè¯æ®é‡Œå®é™…è·‘è¿‡ï¼›**ç°è¡Œæ–‡æ¡£å£°ç§°** = 2026-10-07 æŸ¥é˜…çš„æ»šåŠ¨å®˜æ–¹æ–‡æ¡£æè¿°ï¼Œæœªåœ¨æœ¬é¡¹ç›®å›ºå®šç‰ˆæœ¬ä¸Šè¿è¡Œã€‚
+
+---
+
+## 0. ç»“è®ºæ‘˜è¦
+
+1. **Core èƒ½ç›´æ¥æ‰¿æ‹…ä¸»è¿è¡Œå†…æ ¸**ï¼š`Agent`ï¼ˆtyped agent loopï¼‰ã€`run`/`run_sync`/`run_stream_events`ã€å·¥å…·å¾ªç¯ã€`deps_type`+`RunContext` ä¾èµ–æ³¨å…¥ã€`message_history` ä¼šè¯ç»­æ¥ã€`CancellationToken`/`ctx.cancel()` å–æ¶ˆä¸ `RunCancelled` ç»“æŸè¯­ä¹‰ï¼Œå‡å±â‘ ï¼›æ—§ `RunSegment` æ¨¡å‹/å·¥å…·å¾ªç¯ã€wait/idle è¯­ä¹‰åœ¨èƒ½åŠ›ä¸Šå¯é€€å‡ºï¼ˆå–æ¶ˆå¤±è´¥åªè¦†ç›–â€œé…åˆå–æ¶ˆâ€çš„å·¥å…·ï¼Œè§ Â§3ï¼‰ã€‚
+2. **Harness 0.36.0 æä¾›å››ä»¶å…³é”®å®˜æ–¹ä»¶**ï¼ˆå‡â‘¡ï¼Œä¸” framework-04/05 å·²å®è·‘ï¼‰ï¼š`SubAgents` å§”æ´¾ã€`FileSystem(root_dir=...)` è·¯å¾„é™åˆ¶æ–‡ä»¶å·¥å…·ã€`ToolOutputLimits`+`Spill`+`read_tool_result` å¤§ç»“æœè½ç›˜/è¯»å›ã€`StepPersistence` èµ°ç‚¹å¿«ç…§+å·¥å…·æ•ˆæœè´¦æœ¬ï¼ˆSQLite ç­‰ï¼‰ã€‚
+3. **ä¼šè¯/é•¿æœŸçŠ¶æ€**ï¼šCore ç”¨ `message_history=` + `ModelMessagesTypeAdapter`ï¼ˆJSON round-tripï¼‰+ `conversation_id`/`run_id` æ ‡è¯†ï¼ˆâ‘ ï¼‰ï¼›æ²¡æœ‰â€œthread/ä¼šè¯å¯¹è±¡â€ï¼›Harness `StepPersistence` ç”¨ `conversation_id` åˆ†ç»„å¹¶æä¾›å¯ç»­/å¯ fork å¿«ç…§ä¸ tool-effect ledgerï¼ˆâ‘¡ï¼‰ã€‚æ—§åŸå‹**åªéªŒäº†â€œå¤–å±‚è®°å½•+ä½œå“ç»­åšâ€**ï¼ŒæœªéªŒåºåˆ—åŒ– `message_history` æ¢å¤ï¼ˆÂ§3 åœºæ™¯3ï¼‰ã€‚
+4. **æŒä¹…æ‰§è¡Œä¸æ˜¯ Core è‡ªå¸¦**ï¼šæ˜¯ Core çš„ durable execution èƒ½åŠ›ï¼Œå¿…é¡»**æ¥ä¸€ä¸ª engine**ï¼Œä¸”**æ¯ agent æ°å¥½ä¸€ä¸ª engine**ã€‚å®˜æ–¹æ”¯æŒ 8 ä¸ªï¼šTemporal/DBOS/Prefectï¼ˆä¸å‚å•†å…±åŒç»´æŠ¤ï¼‰ã€Restate/AWS Lambdaï¼ŒåŠ Kitaru/Airflow/Absurdï¼›å¦æœ‰ backend builderã€‚**DBOS æ˜¯åº“å†…è¿›ç¨‹å†…è¿è¡Œ**ï¼ˆåªéœ€ä¸€ä¸ªç³»ç»Ÿæ•°æ®åº“ï¼‰ï¼ŒTemporal/Prefect éœ€è¦å„è‡ª server/æœåŠ¡ã€‚æ—§åŸå‹**æœªæ¥ä»»ä½• durable engine**ï¼ˆâ‘¤ï¼‰ã€‚
+5. **å®šæ—¶ä¸æ¡ä»¶è°ƒåº¦ï¼šCore ä¸ Harness éƒ½æ²¡æœ‰åŸç”Ÿèƒ½åŠ›ï¼ˆâ‘¤ï¼‰**ã€‚`pydantic-ai-harness` çš„ â€œScheduled Agent Execution (cron / time-based triggers)â€ ä»æ˜¯**æœªåˆå¹¶çš„ issue #111**ï¼›core äº¦æœ‰å¯¹åº” open issueã€‚è¿™æ˜¯æœ¬å€™é€‰å¯¹â€œçœŸå®æ—¶åˆ»/æ¡ä»¶å”¤é†’â€çš„**æ ¸å¿ƒç¼ºå£**ï¼Œæœ€å°é…å¥—æ˜¯å¤–éƒ¨è°ƒåº¦å™¨ + é¡¹ç›®è‡ªå†™ç™»è®°/å»é‡/è¡¥æ£€ï¼ˆâ‘£ï¼‰ã€‚
+6. **HITL/å®¡æ‰¹ä¸å—æ§æ‰©å±•ç‚¹é½å¤‡**ï¼š`requires_approval=True`ã€`ApprovalRequired`ã€`DeferredToolRequests`/`DeferredToolResults`ã€`HandleDeferredToolCalls`ã€`CallDeferred`ï¼ˆå¤–éƒ¨æ‰§è¡Œï¼‰ä¸ºâ‘ ï¼›èƒ½åŠ›ç”Ÿå‘½å‘¨æœŸ hookï¼ˆ`before_run/after_run/wrap_run`ã€`before/after/wrap_tool_execute`ã€`before_model_request`ã€`handle_deferred_tool_calls`ã€`on_run_error`ï¼‰ä¸ºâ‘ ã€‚framework-05 å·²å®è·‘ `AbstractCapability.after_tool_execute` ä¸ `ProcessHistory`ï¼ˆâ‘ +â‘£ é€‚é…ï¼‰â€”â€”**è¿™æ˜¯é€’å…¥ current ä¸ç­¾å‘ receipt çš„å€™é€‰å—æ§ç‚¹**ï¼Œä½†â€œreceiptâ€æœ¬èº«ä¸æ˜¯æ¡†æ¶æ¦‚å¿µï¼Œé¡»æ–°å†™ï¼ˆâ‘£ï¼‰ã€‚
+7. **å‰ç«¯è¾¹ç•Œ**ï¼š`UIAdapter`ï¼ˆAG-UIã€Vercel AI ä¸¤ç§åè®®ï¼‰è´Ÿè´£ run input â†” `Agent.run_stream_events()` â†” SSE ç¼–ç ï¼›å¯åœ¨â€œagent ä¸åœ¨è¯·æ±‚å†…è¿è¡Œâ€æ—¶ç”¨ `UIEventStream` å•ç‹¬ç¼–ç ï¼ˆâ‘ /â‘¡ï¼‰ã€‚é€‚é…å™¨ç«¯ç‚¹**ä¸æ˜¯é‰´æƒè¾¹ç•Œ**ï¼Œé¡»æ”¾è¿›è‡ªæœ‰é‰´æƒè·¯ç”±ï¼ˆâ‘£ï¼‰ã€‚
+8. **æœ€å°ç»„åˆ**ï¼šè·‘å¾—èµ·æ¥åªéœ€ `pydantic-ai-slim[<provider>]`ï¼ˆâ‘ ï¼‰ï¼›ç”¨åˆ°çš„ Harness èƒ½åŠ›å†å•åŠ  `pydantic-ai-harness`ï¼ˆâ‘¡ï¼‰ï¼›åªæœ‰éœ€è¦â€œ**åŒä¸€ run å·¥å…·ä¸­é€”å´©æºƒç»­è·‘**â€æ‰å†é€‰**ä¸€ä¸ª** durable engineï¼ˆâ‘¡ï¼ŒDBOS ä¸ºå€™é€‰ï¼Œæœªæ ¸å®å®Œæ•´ç»„åˆæœ€è½»ï¼‰ï¼›å®šæ—¶/å¤–éƒ¨æ£€æµ‹åœ¨ä»»ä½•æƒ…å†µä¸‹éƒ½æ˜¯**å¤–éƒ¨æˆ–è‡ªå†™**ï¼ˆâ‘¤â†’â‘£ï¼‰ã€‚
+9. **æ—§åŸå‹å·²éªŒ vs ç°è¡Œæ–‡æ¡£å£°ç§°ï¼ˆå…³é”®å·®å¼‚ï¼‰**ï¼š`pydantic_ai.workspaces`/`LocalWorkspace`/`ExecutionEnvironment`ã€`Memory`ã€`ConversationSearch`ã€`Skills`ã€Guardrailsã€CodeModeã€å„ sandboxã€deferred toolsã€durable engine ç­‰å‡ä¸º**ç°è¡Œæ»šåŠ¨æ–‡æ¡£å£°ç§°**ï¼Œ**æœªåœ¨å›ºå®š Core 2.51.0 / Harness 0.36.0 ä¸ŠéªŒè¯**ï¼›framework-04 å·²è®°å½•â€œCore 2.51.0 ä¸­ `pydantic_ai.workspaces` å¯¼å…¥ä¸å¯ç”¨â€ï¼Œæ•…æµ®åŠ¨æ–‡æ¡£çš„ workspace æœ¯è¯­ä¸å›ºå®šç‰ˆæœ¬ä¸å¯æ··ç”¨ã€‚
+10. **ä¸ ADR-002 ä¸€è‡´ï¼Œæ— å†²çª**ï¼šæœ¬å€™é€‰â€œå¯æ‰¿æ‹…ä¸»è¿è¡Œå†…æ ¸ + é€‚ç”¨è°ƒåº¦/æ¢å¤äº¤æ¡†æ¶/é…å¥—â€ï¼Œä¸ ADR-002â€œæ•…æ¸Šä¸å¿…è‡ªå»º wake loopã€è¿è¡Œå®¿ä¸»å¯äº¤æ¡†æ¶â€ä¸€è‡´ï¼›ADR-002 Â§â€œåŸç”Ÿèƒ½åŠ›å±‚æ¬¡æ ¸å¯¹â€å¯¹ PydanticAI durable execution çš„è¯´æ³•ä¸æœ¬æ¬¡ç°è¡Œæ–‡æ¡£æ ¸å¯¹ç›¸ç¬¦ï¼ˆå± engine å±‚ï¼Œä¸æ˜¯ Core/Harness å·¥å…·å¾ªç¯è‡ªå¸¦ï¼‰ã€‚
+
+---
+
+## 1. ç‰ˆæœ¬ä¸æ¥æºè¡¨
+
+| åŒ…/æ–‡ä»¶ | ç‰ˆæœ¬ / tag / commit | æŸ¥é˜…æ—¥æœŸ | æ¥æºé“¾æ¥ |
+|---|---|---|---|
+| `pydantic-ai-slim`ï¼ˆCoreï¼‰ | **2.51.0**ï¼ˆæ—§åŸå‹åŸºçº¿ï¼‰ | 2026-10-07 | åŸå‹é”æ–‡ä»¶ `D:/codex/prototypes/framework-04/pydantic-ai/requirements.in`ã€`requirements.lock`ã€`install.log` |
+| `pydantic-ai-slim` v2.51.0 å‘å¸ƒæ—¥æœŸ | 2026-09-25ï¼ˆGitHub releaseï¼‰ | 2026-10-07 | https://github.com/pydantic/pydantic-ai/releases |
+| `pydantic-ai-harness` | **0.36.0**ï¼ˆæ—§åŸå‹åŸºçº¿ï¼›`requirements.in` ç²¾ç¡®é”å®šï¼‰ | 2026-10-07 | åŸå‹ `requirements.in`/`requirements.lock`/`install.log`ï¼›æ»šåŠ¨æ–‡æ¡£ https://pydantic.dev/docs/ai/harness/ |
+| `pydantic-ai-harness` ç‰ˆæœ¬ç­–ç•¥ | 0.xï¼šminor å¯å« breaking change | 2026-10-07 | https://pydantic.dev/docs/ai/harness/ ï¼›ä»“åº“ README |
+| ä¼ é€’ä¾èµ–ï¼ˆæ—§åŸå‹ï¼‰ | `openai==3.24.0`ã€`pydantic==2.13.5`ã€`pydantic-graph==2.51.0`ã€`httpx==0.28.1`ã€`anyio==4.15.1` | 2026-10-07 | `install.log`ï¼ˆ30 ä¸ªé”å®š distributionï¼‰ |
+| Coreï¼šAgent / run | `pydantic_ai.Agent`ã€`run`/`run_sync`/`run_stream_events`/`iter` | 2026-10-07 | https://pydantic.dev/docs/ai/api/pydantic-ai/agent/ |
+| Coreï¼šä¾èµ–æ³¨å…¥ | `deps_type=`ã€`RunContext[...]`ã€`ctx.deps` | 2026-10-07 | https://pydantic.dev/docs/ai/core-concepts/dependencies/ |
+| Coreï¼šæ¶ˆæ¯å†å² | `message_history=`ã€`all_messages()`/`new_messages()`ã€`ModelMessagesTypeAdapter`ã€`conversation_id`/`run_id` | 2026-10-07 | https://pydantic.dev/docs/ai/core-concepts/message-history/ |
+| Coreï¼šå–æ¶ˆ/ç»“æŸ | `CancellationToken`ã€`RunContext.cancel()`ã€`AgentRun.cancel()`ã€`RunCancelled.all_messages()` | 2026-10-07 | https://github.com/pydantic/pydantic-ai/blob/main/pydantic_ai_slim/pydantic_ai/.agents/skills/building-pydantic-ai-agents/references/INPUT-AND-HISTORY.md |
+| Coreï¼šHandler/å®¡æ‰¹ | `HandleDeferredToolCalls`ã€`DeferredToolRequests`/`DeferredToolResults`ã€`CallDeferred`ã€`requires_approval=True` | 2026-10-07 | https://pydantic.dev/docs/ai/tools-toolsets/deferred-tools/ ï¼›https://pydantic.dev/docs/ai/capabilities/handle-deferred-tool-calls/ |
+| Coreï¼šèƒ½åŠ›/hook | `AbstractCapability`ã€`Hooks`ã€`ProcessHistory`ã€ç”Ÿå‘½å‘¨æœŸ hook åˆ—è¡¨ | 2026-10-07 | https://pydantic.dev/docs/ai/core-concepts/hooks/ ï¼›https://pydantic.dev/docs/ai/capabilities/custom |
+| Coreï¼šdurable execution | 8 engine + backend builderï¼›æ¯ agent ä¸€ä¸ª engine | 2026-10-07 | https://pydantic.dev/docs/ai/capabilities/durable_execution/overview/ |
+| Durableï¼šTemporal | éœ€ Temporal Serverï¼ˆæœ¬åœ°æˆ–ç‹¬ç«‹æœåŠ¡ï¼‰ | 2026-10-07 | https://pydantic.dev/docs/ai/capabilities/durable_execution/temporal/ |
+| Durableï¼šDBOS | â€œfully in-process as a libraryâ€ï¼Œéœ€ç³»ç»Ÿæ•°æ®åº“ï¼›å« Queues/Cron Jobs | 2026-10-07 | https://pydantic.dev/docs/ai/capabilities/durable_execution/dbos/ |
+| Durableï¼šbackend builder | `CallableOperationBackend`/`RegisteredOperationBackend`/`DurabilityEngineSpec` | 2026-10-07 | https://pydantic.dev/docs/ai/capabilities/durable_execution/backends |
+| Harnessï¼šæ¦‚è§ˆ/èƒ½åŠ›æ¸…å• | FileSystem/Shell/Skills/RepoContext/Memory/SubAgents/ToolOutputLimits/StepPersistence/ConversationSearch/â€¦ | 2026-10-07 | https://pydantic.dev/docs/ai/harness/ |
+| Harnessï¼šSubAgents | `SubAgents`/`SubAgent`ã€`delegate_task(agent_name, task)`ã€per-delegate `max_calls/timeout_seconds/usage_limits` | 2026-10-07 | https://pydantic.dev/docs/ai/harness/subagents/ |
+| Harnessï¼šFileSystem | `root_dir`ã€`allowed_patterns`/`denied_patterns`/`read_only_patterns`ã€`tools=[...]`ã€`content_hashes`/`expected_hash` | 2026-10-07 | https://pydantic.dev/docs/ai/harness/filesystem/ |
+| Harnessï¼šToolOutputLimits | `Band`/`Spill`/`Summarize`/`Truncate`ã€`LocalFileStore`/`OverflowStore`ã€`read_tool_result(handle, offset, limit, from_end, pattern)` | 2026-10-07 | https://pydantic.dev/docs/ai/harness/tool-output-limits/ |
+| Harnessï¼šStepPersistence | `StepPersistence`ã€`SqliteStepStore`ã€`ContinuableSnapshot`ã€tool-effect ledger | 2026-10-07 | https://pydantic.dev/docs/ai/harness/step-persistence/ |
+| Harnessï¼šMemory | `Memory(FileStore(...))`ã€å†™/è¯»/åˆ /æœå·¥å…·ï¼ŒæŒ‰ namespace è€Œé `conversation_id` | 2026-10-07 | https://pydantic.dev/docs/ai/harness/memory/ |
+| è°ƒåº¦ç¼ºå£ | Harness issue #111 â€œScheduled Agent Execution (cron / time-based triggers)â€ï¼ˆæœªåˆå¹¶ï¼‰ | 2026-10-07 | https://github.com/pydantic/pydantic-ai-harness/issues/111 |
+| UI æµå¼ | `UIAdapter`ï¼ˆAG-UI `AGUIAdapter` / Vercel `VercelAIAdapter`ï¼‰ã€SSE ç¼–ç ã€`on_complete`/`on_cancel` | 2026-10-07 | https://pydantic.dev/docs/ai/integrations/ui/ |
+| æ—§åŸå‹è¯æ®ï¼ˆframework-04ï¼‰ | `prototype.py`ã€`run_validation.py`ã€`evidence/validation.json`ã€`requirements.lock` | 2026-10-07 | `D:/codex/prototypes/framework-04/pydantic-ai/` |
+| æ—§åŸå‹è¯æ®ï¼ˆframework-05ï¼‰ | `runner/pai_run.py`ã€`runner/pai_history.py`ã€`evidence/results-pai.json`ã€`evidence/run-meta-pc*.json`ã€`evidence/stub-requests-pc*.jsonl` | 2026-10-07 | `D:/codex/prototypes/framework-05/pydantic-ai/` |
+
+**æ¥æºè¾¹ç•Œæç¤º**ï¼šæˆªè‡³æŸ¥é˜…æ—¥ï¼Œæˆ‘èƒ½ä»å…¬å¼€ release åˆ—è¡¨çœ‹åˆ°çš„ Harness ç‰ˆæœ¬å·æœ€é«˜ä¸º 0.31.0ï¼›**0.36.0 ä»…ç”±æ—§åŸå‹é”æ–‡ä»¶ç¡®è®¤**ã€‚ä¸‹æ–‡å‡¡å±â€œç°è¡Œæ–‡æ¡£å£°ç§°â€çš„ Harness èƒ½åŠ›ï¼Œç‰ˆæœ¬é”šç‚¹æ˜¯æœ€æ–°æ»šåŠ¨ 0.x æ–‡æ¡£ï¼Œ**ä¸ä¿è¯ä¸ 0.36.0 é€ä¸€å¯¹åº”**ï¼ˆHarness 0.x å…è®¸ minor breaking changeï¼‰ã€‚
+
+---
+
+## 2. Â§4 ä¸ƒæ ¼å¯¹ç…§è¡¨
+
+### æ ¼ 1 Â· ä¸»ä¼šè¯ä¸è¿è¡Œï¼ˆè°æ‰¿è½½æ¨¡å‹/å·¥å…·å¾ªç¯ã€çŠ¶æ€æ³¨å…¥ã€ç»“æœå¼•ç”¨ã€æ’é˜Ÿã€å–æ¶ˆä¸ç»“æŸï¼‰
+
+| åˆ¤å®šå±‚æ¬¡ | å…·ä½“åŒ…/æ¨¡å— | ä¾æ® |
+|---|---|---|
+| â‘  åŸç”Ÿ | `pydantic_ai.Agent` + `run`/`run_sync`/`run_stream_events`/`iter` çš„ typed tool loopï¼›register via `@agent.tool_plain`/`@agent.tool` | æ—§åŸå‹å·²éªŒï¼šframework-04 `prototype.py build_agent`ã€`r1.json`ï¼ˆsearch/read/write 5 æ¬¡æœ¬åœ°æ¨¡å‹è¯·æ±‚ï¼‰ï¼›framework-05 `pai_run.py`ï¼ˆ4 ä¸ªæœªç”¨ tool_plain + C1 7/7ï¼‰ |
+| â‘  åŸç”Ÿ | çŠ¶æ€æ³¨å…¥ï¼`ProcessHistory` å¤„ç†å™¨æˆ–ç›´æ¥ `before_model_request` hookï¼ˆå¯æ”¹å†™æ¯è¯·æ±‚ historyï¼‰ | æ—§åŸå‹å·²éªŒï¼šframework-05 `pai_history.py Fw05HistoryProcessor` ç» `ProcessHistory` æ³¨å…¥å•ä»½çŠ¶æ€å—ã€æŒ‰è½® slimï¼ˆC1/C3 passï¼‰ |
+| â‘  åŸç”Ÿ | æ¶ˆæ¯å†å²/ç»“æœå¼•ç”¨ï¼š`message_history=`ã€`all_messages()`/`new_messages()`ã€`ToolReturnPart.outcome`ã€`ToolReturnPart.metadata` | æ—§åŸå‹å·²éªŒï¼šframework-05 `pai_run.py` å¾ªç¯é‡Œ `history = result.all_messages()`ï¼›`run-meta-pc*.json`ï¼›`results-pai.json` C2.outcome |
+| â‘  åŸç”Ÿ | å–æ¶ˆ/ç»“æŸï¼š`CancellationToken`/`agent_run.cancel()`/`ctx.cancel()`ï¼Œ`RunCancelled`/`RunCancelled.all_messages()` | æ—§åŸå‹å·²éªŒï¼šframework-04 `prototype.py build_cancel_agent`+`test_agent_runtime.py`ï¼ˆå–æ¶ˆä¼ æ’­åˆ°å›ºå®š async toolï¼Œ`CancelledError`ï¼‰ï¼›ç°è¡Œæ–‡æ¡£è¡¥é½ `RunCancelled.all_messages()` å¿«ç…§è¯­ä¹‰ï¼ˆæœªåœ¨æœ¬é¡¹ç›®è¿è¡Œï¼‰ |
+| â‘¢ èµ„äº§ / â‘£ é€‚é… | æ—§ `RunSegment`/`wait/idle`/ä¸²è¡Œæ’é˜Ÿåœ¨èƒ½åŠ›ä¸Šå¯é€€å‡ºï¼›æ’é˜Ÿä¸â€œä¸€å”¤é†’ä¸€ä¼šè¯â€çš„è¾¹ç•Œç”±å¤–å±‚æŒæœ‰ | ADR-002 è¡¨æ ¼ï¼›framework-05 `pai_run.py` æ¯ run æ˜¾å¼ä¼  `message_history`ï¼ˆæ— éšå¼ sessionï¼‰ |
+
+### æ ¼ 2 Â· æœ¬äººä»»åŠ¡ä¸å­ä»£ç†ï¼ˆæœ¬äººç‹¬ç«‹å·¥ä½œ vs ä»£åšï¼›é•¿å·¥ä½œ/ç­‰å¾…æœŸé—´ç»§ç»­ä¸»å¯¹è¯ï¼›å­ä»£ç†è¿è¡Œå•å…ƒï¼›äº§ç‰©æ¥æ”¶ï¼‰
+
+| åˆ¤å®šå±‚æ¬¡ | å…·ä½“åŒ…/æ¨¡å— | ä¾æ® |
+|---|---|---|
+| â‘¡ å®˜æ–¹å¯é€‰ | `pydantic_ai_harness.SubAgents`/`SubAgent`ï¼Œæš´éœ²å•ä¸€ `delegate_task(agent_name, task)`ï¼›å­ä»£ç†**ç‹¬ç«‹ runã€ç‹¬ç«‹ message history**ï¼›per-delegate `max_calls`/`timeout_seconds`/`usage_limits`ï¼›å–æ¶ˆ/usage-limit/æ§åˆ¶æµä¿¡å·ä¼šç©¿é€ containment | æ—§åŸå‹å·²éªŒï¼šframework-04 `run_validation.py`ï¼ˆ`SubAgents([SubAgent(child,name='reviewer',max_calls=1)])`ï¼Œparentâ†’childâ†’parent 4 æ¬¡æ¡©è¯·æ±‚ï¼Œ`validation.json D1`ï¼‰ |
+| â‘  åŸç”Ÿ | æŠŠé•¿ä»»åŠ¡ç”©å‡ºå½“å‰ runï¼š`CallDeferred` â†’ `DeferredToolRequests`ï¼ˆå¤–éƒ¨æ‰§è¡Œï¼‰ï¼Œæˆ– `HandleDeferredToolCalls` å†…è”è§£æ | ç°è¡Œæ–‡æ¡£å£°ç§°ï¼ˆæœªåœ¨æœ¬é¡¹ç›®è¿è¡Œï¼‰ |
+| â‘£ é€‚é… | â€œæœ¬äººç‹¬ç«‹ä»»åŠ¡â€ä¸â€œå­ä»£ç†ä»£åšâ€çš„åŒºåˆ†ã€çˆ¶å­ actor/æˆæƒã€å¼‚æ­¥åå° workerã€ç»“æœå›æµä¸ä¸»å¯¹è¯ç»§ç»­ï¼Œå‡ä¸ºä¸šåŠ¡å±‚æ–°å†™ï¼›`delegate_task` é»˜è®¤æ˜¯**çˆ¶ run å†…çš„ä¸€æ¬¡å·¥å…·è°ƒç”¨**ï¼ˆåŒè¿›ç¨‹ã€é˜»å¡è¯¥è½®ï¼‰ï¼Œè¦åœ¨é•¿ç­‰å¾…ä¸­ç»§ç»­ä¸»å¯¹è¯éœ€å¦ç”¨ deferred/external è·¯å¾„æˆ–ç‹¬ç«‹ worker | framework-04 å¤æ ¸å·²æŒ‡å‡ºâ€œäº§å“çº§å¼‚æ­¥å­ä»»åŠ¡ç”Ÿå‘½å‘¨æœŸã€é‡å¯å›æ‰§ã€OS èº«ä»½éš”ç¦»ä»é¡»å¤–å±‚å®ç°â€ |
+| â‘¢ èµ„äº§ | äº§ç‰©æ¥æ”¶ï¼šå¤–å±‚ `ArtifactStore`ï¼ˆç‰ˆæœ¬/å“ˆå¸Œ/æ¥æºï¼‰ã€ä»»åŠ¡ manifest | æ—§åŸå‹å·²éªŒï¼šframework-04 `prototype.py ArtifactStore`ï¼ˆstory.v1/v2ã€review.v1/v2ï¼‰ï¼›framework-05 `harness.ArtifactStore` |
+| â‘¤ æœªéªŒ | å­ä»£ç†æƒé™èŒƒå›´å¼ºåˆ¶ï¼ˆframework-04 D1 ä¸­ child å·¥å…·å®é™…å¯è¯» source-a/source-bï¼Œmanifest å†™ `read:fixture-a` ä½†æœªå•ç‹¬æ‹’ç» source-bï¼‰ | framework-04 å¤æ ¸ Â§3 |
+
+### æ ¼ 3 Â· çœŸå®å®šæ—¶ä¸æ¡ä»¶ï¼ˆä¸€æ¬¡æ€§æ—¶åˆ»/å‘¨æœŸ/å¤–éƒ¨å˜åŒ–ï¼›æ³¨å†Œ/å–æ¶ˆ/å»é‡/é‡å¯è¡¥æ£€ï¼›è°å†³å®šé‡æ–°æ£€æŸ¥/æ‰§è¡Œ/é€šçŸ¥ï¼‰
+
+| åˆ¤å®šå±‚æ¬¡ | å…·ä½“åŒ…/æ¨¡å— | ä¾æ® |
+|---|---|---|
+| â‘¤ å°šç¼º | **Core ä¸ Harness å‡æ— åŸç”Ÿå®šæ—¶/è°ƒåº¦èƒ½åŠ›**ï¼›æ—  `Scheduling` capability | Harness èƒ½åŠ›æ¸…å•æ— è°ƒåº¦é¡¹ï¼ˆhttps://pydantic.dev/docs/ai/harness/ï¼‰ï¼›Harness issue #111ã€core issue #9163ï¼ˆschedulingï¼‰å‡ä¸º**æœªåˆå¹¶ feature request** |
+| â‘¡ å®˜æ–¹å¯é€‰ï¼ˆengine å±‚ï¼‰ | è‹¥å·²é€‰ç”¨ durable engineï¼Œ**DBOS** è‡ªå¸¦ Cron Jobs / Queuesï¼ˆæ•°æ®åº“åç«¯çš„å®šæ—¶ä¸é˜Ÿåˆ—ï¼‰ï¼Œä½†é‚£æ˜¯ DBOS å¼•æ“èƒ½åŠ›ï¼Œ**ä¸æ˜¯ PydanticAI Core/Harness çš„è°ƒåº¦** | https://pydantic.dev/docs/ai/capabilities/durable_execution/dbos/ |
+| â‘£ é€‚é… | ä¸€æ¬¡æ€§/å‘¨æœŸæ—¶åˆ»ç™»è®°ã€å–æ¶ˆã€å»é‡ã€é‡å¯è¡¥æ£€ï¼šéœ€å¤–éƒ¨è°ƒåº¦ï¼ˆç³»ç»Ÿ cronã€å®¹å™¨è°ƒåº¦æˆ–æ‰€é€‰ engine çš„ cronï¼‰+ é¡¹ç›®è‡ªå†™ç™»è®°è¡¨ä¸è¡¥æ£€é€»è¾‘ | ADR-002 Â§â€œæ—§æœºåˆ¶ä¸æ–°æ–¹å‘å–èˆâ€å·²å®šæ€§â€œè°ƒåº¦åˆ°ç‚¹ä¸è‡ªåŠ¨çŸ¥é“ç½‘ç«™å˜åŒ–ï¼Œä»éœ€æ•°æ®æ¥å…¥/æ¡ä»¶åˆ¤æ–­â€ |
+| â‘£ é€‚é… | å¤–éƒ¨å˜åŒ–æ£€æµ‹ï¼šæ¥å…¥æ•°æ®æºã€æ¡ä»¶åˆ¤æ–­ã€æŒ‰å½“å‰æˆæƒå†³å®šè¡ŒåŠ¨/é€šçŸ¥ï¼›â€œå‘½ä¸­ä¸ç­‰äºæˆæƒæ‰§è¡Œâ€ | 00c Â§6/Â§11ï¼›Project/æƒé™è¾¹ç•Œä¸å±æ¡†æ¶ |
+| â‘  åŸç”Ÿï¼ˆè¾¹ç¼˜ï¼‰ | è¿è¡Œå†…å¯è°ƒ `WebFetch`/`WebSearch` ç­‰ Core èƒ½åŠ›è¯»ä¸€æ¬¡å†…å®¹ï¼Œä½†**ä¸åšå˜æ›´æ£€æµ‹/å»é‡/é˜ˆå€¼** | ç°è¡Œæ–‡æ¡£å£°ç§°ï¼ˆREADME ç¤ºä¾‹ `from pydantic_ai.capabilities import WebFetch, WebSearch`ï¼‰ï¼Œæœªåœ¨æœ¬é¡¹ç›®è¿è¡Œ |
+
+**ç»“è®º**ï¼šçœŸå®æ—¶åˆ»/æ¡ä»¶ç™»è®°ä¸å¤–éƒ¨å˜åŒ–**å®Œå…¨ä¸è½åœ¨è¿™å¥—æ¡†æ¶çš„ Core/Harness é‡Œ**ï¼ˆâ‘¤ï¼‰ï¼Œå¿…é¡»åœ¨å¤–éƒ¨è°ƒåº¦ + é¡¹ç›®é€‚é…è½åœ°ï¼ˆâ‘£ï¼‰ã€‚è¿™æ­£æ˜¯ framework-02/00d åå¤å¼ºè°ƒâ€œæ‰¿è½½æ–¹æœªå®šâ€çš„æ ¼å­ã€‚
+
+### æ ¼ 4 Â· æŒä¹…æ¢å¤ï¼ˆä¼šè¯é‡å¼€ã€åŒä¸€ run å´©æºƒæ¢å¤ã€ä»ä½œå“/ä»»åŠ¡è®°å½•ç»­åšï¼›é‡å¤å“ªäº›åŠ¨ä½œå¦‚ä½•æ ¸å¯¹ï¼‰
+
+| åˆ¤å®šå±‚æ¬¡ | å…·ä½“åŒ…/æ¨¡å— | ä¾æ® |
+|---|---|---|
+| â‘  åŸç”Ÿ | ä¼šè¯é‡å¼€ï¼è‡ªå·±å­˜ `message_history` å­—èŠ‚ï¼ˆ`ModelMessagesTypeAdapter` round-tripï¼Œå« `metadata`ï¼‰ã€`conversation_id` å½’ç»„ã€`new_messages()` å¢é‡è¿½åŠ  | ç°è¡Œæ–‡æ¡£å£°ç§°ï¼›æ—§åŸå‹**åªéªŒ**å¤–å±‚è®°å½•æ³¨å…¥ + æ–° runï¼ˆframework-05 C5A/C5Bï¼‰ |
+| â‘¡ å®˜æ–¹å¯é€‰ | `StepPersistence`ï¼ˆ`SqliteStepStore` ç­‰ï¼‰ï¼šæ¯ä¸ª settled step å­˜å¯ç»­/fork å¿«ç…§ + append-only step event + **tool-effect ledger**ï¼ˆ`started`/`completed`/`failed` per `(run_id, tool_call_id)`ï¼‰ | æ—§åŸå‹å·²éªŒï¼ˆéƒ¨åˆ†ï¼‰ï¼šframework-04 `validation.json`ï¼ˆ2 run / 7 snapshotsï¼‰ï¼›**ä½†**åŒ run ä¸­é€”æ¢å¤æœªéªŒï¼Œ`latest_snapshot`/`continue_run` åªå› `complete` å¿«ç…§ |
+| â‘¡ å®˜æ–¹å¯é€‰ï¼ˆengine å±‚ï¼‰ | åŒä¸€ run **å·¥å…·ä¸­é€”**å´©æºƒç»­è·‘ï¼durable executionï¼ˆæ¥ä¸€ä¸ª engineï¼‰ï¼›å®˜æ¡£æ˜ç¡®â€œmid-step crash æ‰ç”¨ durable executionï¼ŒStepPersistence åªåˆ° settled è¾¹ç•Œâ€ | https://pydantic.dev/docs/ai/harness/step-persistence/ ï¼›durable_execution overviewã€‚æ—§åŸå‹æœªæ¥ä»»ä½• engineï¼ˆâ‘¤ï¼‰ |
+| â‘¢ èµ„äº§ | ä»ä½œå“/ä»»åŠ¡è®°å½•ç»­åšï¼šå¤–å±‚ manifest + artifact ç‰ˆæœ¬ + æ˜¾å¼æ–° run | æ—§åŸå‹å·²éªŒï¼šframework-04 L1/L2ï¼ˆæ–°è¿›ç¨‹è¯» artifact v2 ç»­åš/ç¡®è®¤ï¼Œ`migrate-fresh` åªè¯»ç¡®è®¤ã€æœªå†™ä¸‹ä¸€é˜¶æ®µï¼‰ï¼›framework-05 C5Bï¼ˆv2 ç”±å®é™…è¯»å›çš„ v1 æ´¾ç”Ÿï¼‰ |
+| â‘¤ æœªéªŒ | çœŸå®å¤–éƒ¨å‰¯ä½œç”¨çš„ exactly-once / å¯¹è´¦ï¼›`StepPersistence` çš„ tool-effect ledger åœ¨**çœŸå®** Agent/tool å´©æºƒè·¯å¾„ä¸­çš„åˆ¤å®š | framework-04 å¤æ ¸ï¼šeffect å´©æºƒæ˜¯ç‹¬ç«‹ Python/JSON æ¨¡æ‹Ÿï¼Œæœªç»è¿‡å€™é€‰ Agent/tool æ¢å¤è·¯å¾„ |
+
+### æ ¼ 5 Â· è®¤çŸ¥ / authority æ¥å…¥ï¼ˆå—æ§æ‰©å±•ç‚¹é€’å…¥ currentã€ç»“ç®—ã€ä¸»ä½“è®¤é¢†ä¸ receiptï¼‰
+
+| åˆ¤å®šå±‚æ¬¡ | å…·ä½“åŒ…/æ¨¡å— | ä¾æ® |
+|---|---|---|
+| â‘  åŸç”Ÿ | é€’å…¥ currentï¼š`before_model_request`/`ProcessHistory`ï¼ˆæ”¹å†™è¯·æ±‚è§†å›¾ï¼‰ã€`RunContext`(=`ctx.deps`/`ctx.messages`) | æ—§åŸå‹å·²éªŒï¼šframework-05 `pai_history.py`ï¼ˆå¤–å±‚è®°å½•â†’çŠ¶æ€å—ï¼ŒC1/C5A/C5B passï¼‰ |
+| â‘  åŸç”Ÿ | å—æ§ç‚¹ï¼šèƒ½åŠ›ç”Ÿå‘½å‘¨æœŸ hookï¼ˆ`before_run/after_run/wrap_run`ã€`before/after/wrap_tool_execute`ã€`handle_deferred_tool_calls`ã€`on_run_error`ï¼‰ï¼›`after_tool_execute` å¯è§‚å¯Ÿ/æ”¹å·¥å…·è¿”å› | æ—§åŸå‹å·²éªŒï¼šframework-05 `pai_run.py Fw05Capture.after_tool_execute`ï¼ˆè®°å½•æ¡†æ¶äº¤å›çš„åŸå§‹å·¥å…·è¿”å›+å“ˆå¸Œï¼‰ |
+| â‘  åŸç”Ÿ | ä¸»ä½“è®¤é¢†å‰çš„â€œæ‰¹å‡†é—¸é—¨â€ï¼š`requires_approval=True`ã€`ApprovalRequired`ã€`DeferredToolRequests`/`DeferredToolResults`ã€`ToolApproved`/`ToolDenied`+`override_args`ã€`RunContext.tool_call_approved`ã€`ToolDenied.message` | ç°è¡Œæ–‡æ¡£å£°ç§°ï¼ˆæœªåœ¨æœ¬é¡¹ç›®è¿è¡Œï¼‰ |
+| â‘£ é€‚é… | **receipt** ä¸æ˜¯æ¡†æ¶æ¦‚å¿µï¼šç­¾å‘/æŒä¹…å®¡è®¡å‡­æ®ã€åŸŸå†… actor/capability/scope æ ¡éªŒã€è·¨è¿›ç¨‹é‡æ”¾/å¤±æ•ˆï¼Œé¡»åœ¨ hook/å·¥å…·/é€‚é…é‡Œè‡ªå†™ï¼›æ¡†æ¶åªæä¾›â€œè°åœ¨ä½•æ—¶è°ƒç”¨/è¢«æ‰¹å‡†â€çš„é’©å­ä¸ metadata | 00c Â§9.1ï¼›æ¡†æ¶æ— å¯¹åº”ç±»å‹ |
+| â‘¤ æœªéªŒ | æ¨¡å‹æ­£æ–‡ä¸èƒ½è‡ªæŠ¥â€œå·²æˆæƒ/å·²å®Œæˆâ€çš„å¼ºåˆ¶ï¼šæ¡†æ¶ä¸æ ¡éªŒä¸šåŠ¡çœŸå€¼ï¼Œé¡»ç”± receipt + æ‰§è¡Œç«¯ç»“æœæ‰¿æ‹…ï¼ˆâ‘£ï¼‰ | ADR-002 Â§æœ¯è¯­ä¸è´£ä»» |
+
+### æ ¼ 6 Â· å¯¹è¯ / å‰ç«¯è¾¹ç•Œï¼ˆä¸»åŠ¨ç»“æœã€æ— æ–‡æœ¬ç»“æŸã€SSE/æ–­çº¿é‡è¿å½’è°ï¼‰
+
+| åˆ¤å®šå±‚æ¬¡ | å…·ä½“åŒ…/æ¨¡å— | ä¾æ® |
+|---|---|---|
+| â‘ /â‘¡ åŸç”Ÿ | `UIAdapter`ï¼ˆ`AGUIAdapter`/`VercelAIAdapter`ï¼‰ï¼šrun input â†” `Agent.run_stream_events()` â†” SSEï¼›`dispatch_request`/`run_stream`/`encode_stream`/`streaming_response`ï¼›`on_complete`/`on_cancel`ï¼ˆå–æ¶ˆå› `RunCancelled`ï¼‰ | ç°è¡Œæ–‡æ¡£å£°ç§°ï¼ˆæœªåœ¨æœ¬é¡¹ç›®è¿è¡Œï¼›framework-05 æ¡©æ”¯æŒ SSE ä½†äº§å“æµå¼æœªè·‘ï¼‰ |
+| â‘¡ å®˜æ–¹å¯é€‰ | agent ä¸åœ¨è¯·æ±‚å†…çš„åœºæ™¯ï¼šç”¨ `UIEventStream` å•ç‹¬ç¼–ç ï¼›transport å¿…é¡»æºå¸¦æ•´æ®µ `Agent.run_stream_events()`ï¼ˆå« `AgentRunResultEvent`ï¼‰æ‰èƒ½æ”¶å°¾ | ç°è¡Œæ–‡æ¡£å£°ç§° |
+| â‘£ é€‚é… | ä¸»åŠ¨ç»“æœ/æ— æ–‡æœ¬ç»“æŸçš„é€’å›ï¼šé€‚é…å™¨ç«¯ç‚¹**ä¸æ˜¯é‰´æƒè¾¹ç•Œ**ï¼Œé¡»æ”¾è¿›è‡ªæœ‰é‰´æƒè·¯ç”±ï¼›æ–­çº¿é‡è¿ã€é‡æ”¾ã€thread/run å…³è”ç”±å¤–å±‚ transport æ‰¿æ‹… | https://pydantic.dev/docs/ai/integrations/ui/ |
+| â‘¢ èµ„äº§ | Tidal/React å‰ç«¯ã€æ—¢æœ‰ API å¹‚ç­‰å—ç†ä¸ç‹¬ç«‹ SSEï¼šframework-04/05 æœªæ¥äº§å“å‰ç«¯ | äº¤æ¥ Â§4 è¡¨ï¼ˆæœªéªŒï¼‰ |
+
+### æ ¼ 7 Â· è¿è¡Œç»„åˆä¸æˆæœ¬ï¼ˆä»…è£…æ ¸å¿ƒæ˜¯å¦å¤Ÿï¼›Harness/éƒ¨ç½²å±‚/æŒä¹…å¼•æ“/å¤–éƒ¨è°ƒåº¦ä½•æ—¶å¿…è¦ï¼›æ–°å¢ç»´æŠ¤/éƒ¨ç½²è´Ÿæ‹…ï¼‰
+
+| åˆ¤å®šå±‚æ¬¡ | å…·ä½“åŒ…/æ¨¡å— | ä¾æ® |
+|---|---|---|
+| â‘  æ ¸å¿ƒ | æœ€å°å¯ç”¨ï¼`pydantic-ai-slim[<provider>]`ï¼ˆæˆ–æ•´åŒ… `pydantic-ai`ï¼‰+ æ¨¡å‹ provider extraï¼›æ—§åŸå‹å³ `pydantic-ai-slim[openai]==2.51.0` | æ—§åŸå‹ `requirements.in`ï¼›å®˜æ¡£ â€œpydantic-ai-harness ä¼šä¸€å¹¶è£… slimâ€ |
+| â‘¡ å¯é€‰ | Harness åªåœ¨ç”¨å…¶èƒ½åŠ›æ—¶è£…ï¼ˆ`pydantic-ai-harness`ï¼Œå« `[code-mode]/[cli]` ç­‰ extraï¼‰ï¼›æœ¬å€™é€‰å…³é”®ä¾èµ–ï¼š`SubAgents`/`FileSystem`/`ToolOutputLimits`/`StepPersistence` | æ—§åŸå‹ `pydantic-ai-harness==0.36.0`ï¼›å®˜æ¡£ |
+| â‘¡ éƒ¨ç½²å±‚ï¼ˆæŒ‰éœ€ï¼‰ | durable engine åªæœ‰éœ€è¦â€œåŒ run å·¥å…·ä¸­é€”å´©æºƒç»­è·‘â€æ‰é€‰**ä¸€ä¸ª**ï¼šDBOSï¼ˆåº“å†…è¿›ç¨‹å†…ï¼Œéœ€ DBï¼‰ï¼Temporalï¼ˆéœ€ Temporal Serverï¼‰ï¼Prefectï¼ˆéœ€å…¶æœåŠ¡ï¼‰ç­‰ | durable_execution overview/temporal/dbos |
+| â‘£ å¤–éƒ¨/è‡ªå†™ | è°ƒåº¦ä¸å¤–éƒ¨æ£€æµ‹ï¼š**æ¡†æ¶ä¸æä¾›**ï¼Œé¡»å¤–éƒ¨è°ƒåº¦å™¨ + é¡¹ç›®é€‚é…ï¼ˆæ ¼ 3ï¼‰ | Harness issue #111 |
+| â‘¢ èµ„äº§ | éœ€è¦ä¿ç•™çš„å¤–å±‚ä»¶ï¼šä»»åŠ¡ manifestã€artifact store+ç‰ˆæœ¬å“ˆå¸Œã€çŠ¶æ€å—æ„å»ºã€ç»Ÿä¸€åˆ¤æ® | framework-04/05 åŸå‹ï¼ˆå¯æ•´å—æ²¿ç”¨ï¼‰ |
+
+---
+
+## 3. Â§5 ä¸‰åœºæ™¯ï¼ˆåŸç”Ÿè¦†ç›– / ç¼ºå£ / å¤±è´¥æˆ–æœªçŸ¥ / è¯æ®ï¼‰
+
+### åœºæ™¯ 1 Â· ç ”ç©¶æœŸé—´ç»§ç»­äº¤è°ˆï¼ˆä¸»ä½“é•¿ç ”ç©¶ + åªè¯»å­ä»£ç†ï¼Œç­‰å¾…æ—¶ç”¨æˆ·å‘æ¶ˆæ¯ï¼‰
+
+æ—¶åºï¼š
+
+1. ç”¨æˆ·æ¶ˆæ¯ â†’ ä¸»ä½“ä¸» `Agent.run`ï¼ˆâ‘ ï¼‰ï¼šå·¥å…·å¾ªç¯åšç ”ç©¶ï¼›å¤–å±‚ç”¨ `message_history` ç»´æŒå¯¹è¯ã€‚
+2. ä¸»ä½“åœ¨è¯¥ run å†…å§”æ´¾ä¸€æ¬¡åªè¯»å­ä»£ç†ï¼š`delegate_task(agent_name, task)`ï¼ˆâ‘¡ `SubAgents`ï¼‰â†’ å­ä»£ç†**ç‹¬ç«‹ runã€ç‹¬ç«‹ history**ï¼Œåªæ‹¿åˆ°å…¶å·¥å…·é›†ã€‚framework-04 å®æµ‹ï¼šchild åªæŒ‚ `read_review_source`ï¼Œå›ä¼ å parent ç»­å†™ã€‚
+3. å­ä»£ç†äº§ç‰©ç”±**å¤–å±‚ ArtifactStore** æ¥æ”¶å¹¶åšç‰ˆæœ¬/æ¥æºï¼ˆâ‘¢ï¼‰ã€‚
+4. ç­‰å¾…æœŸé—´ç”¨æˆ·å†å‘æ¶ˆæ¯ï¼šæ–°çš„ä¸€æ¬¡ `Agent.run(message_history=...)` å³å¯åœ¨åŒä¸€ä¼šè¯ç»§ç»­ï¼ˆâ‘ ï¼‰ï¼›ä½†**åŒä¸€çˆ¶ run åœ¨ç­‰å¾… `delegate_task` ç»“æœæ—¶**ï¼Œå…¶å®ƒå¼‚æ­¥ run å¯ç»§ç»­ï¼›æŒä¹…åå°ä»»åŠ¡/æƒé™ä¸èµ„æºè¾¹ç•Œå¦å®šï¼Œä¸èƒ½æ¨å¯¼å¿…é¡»ç‹¬ç«‹ workerã€‚
+
+- **åŸç”Ÿè¦†ç›–**ï¼šAgent loopã€å§”æ´¾ã€ç‹¬ç«‹å­ä»£ç† historyã€ä¼šè¯ç»­æ¥ã€å–æ¶ˆï¼ˆâ‘ /â‘¡ï¼‰ã€‚
+- **ç¼ºå£**ï¼šçˆ¶/å­èº«ä»½ä¸æˆæƒåŒºåˆ†ã€å¼‚æ­¥åå° child workerã€è·¨è¶Šç­‰å¾…æœŸçš„æ¶ˆæ¯æ’é˜Ÿã€ç»“æœä¸»åŠ¨å›æµâ€”â€”æ¡†æ¶ä¸æä¾›ï¼ˆâ‘£ï¼‰ï¼›`delegate_task` é»˜è®¤åŒè¿›ç¨‹é˜»å¡çˆ¶è½®ã€‚
+- **å¤±è´¥/æœªçŸ¥**ï¼šå­ä»£ç†æˆæƒæ˜¯å¦è¢«çœŸå®é™åˆ¶**æœªéªŒ**ï¼ˆframework-04 D1 ä¸­ child å®é™…å¯è¯» source-bï¼ŒæœªæŒ‰ä»»åŠ¡èŒƒå›´æ‹’ç»ï¼‰ï¼›ç¬¦åˆåŒ scope çš„ OS èº«ä»½éš”ç¦»æœªéªŒã€‚
+- **è¯æ®**ï¼šframework-04 `run_validation.py`ã€`validation.json D1`ï¼›framework-05 `pai_run.py`ã€`results-pai.json C1/C5A`ã€‚
+
+### åœºæ™¯ 2 Â· çœŸå®æ—¶åˆ»ä¸å›å¤å˜åŒ–ï¼ˆç™»è®°â€œæ˜æ—¥ä¸‹åˆå†çœ‹æŸè®ºå›ä¸»é¢˜â€ï¼Œæ— æ–°å›å¤åˆ™æ²‰é»˜ï¼‰
+
+æ—¶åºï¼š
+
+1. ä¸»ä½“ç™»è®°ä¸€ä¸ªæœªæ¥æ—¶åˆ»/æ¡ä»¶ã€‚**æ¡†æ¶æ— å®šæ—¶èƒ½åŠ›**ï¼ˆâ‘¤ï¼‰â†’ é¡»å¤–éƒ¨è°ƒåº¦å™¨å†™å…¥åˆ°æœŸé¡¹ã€‚
+2. åˆ°ç‚¹ç”±å¤–éƒ¨è°ƒåº¦è§¦å‘**ä¸€æ¬¡æ–°çš„ `Agent.run`**ï¼ˆâ‘ ï¼‰ï¼›æŠ“å–è®ºå›ç”¨ä»€ä¹ˆå·¥å…·ç”±é¡¹ç›®æ¥å…¥ï¼ˆCore çš„ `WebFetch` ä»…æ˜¯å•æ¬¡è¯»å–ï¼Œæ— å˜æ›´æ£€æµ‹ï¼‰ã€‚
+3. run å†…åšæ¡ä»¶åˆ¤æ–­ï¼ˆæœ‰æ— æ–°å›å¤ï¼‰ï¼šæ¨¡å‹/å·¥å…·é€»è¾‘ï¼ˆâ‘ ï¼‹ä¸šåŠ¡â‘£ï¼‰ï¼›**æ— æ–°å›å¤æ—¶ä¸»åŠ¨ç»“æŸä¸”ä¸äº§å‡ºç”¨æˆ·å¯è§æ–‡æœ¬**ã€‚
+4. æœ‰æ–°å›å¤æ—¶â€œå…ˆé‡æ–°æ£€æŸ¥ã€å†æŒ‰å½“å‰æˆæƒè¡ŒåŠ¨/é€šçŸ¥â€ï¼šè¡ŒåŠ¨åˆæ³•æ€§èµ° deferred/å®¡æ‰¹é—¸é—¨ï¼ˆâ‘ ï¼‰ä¸ä¸šåŠ¡ receiptï¼ˆâ‘£ï¼‰ï¼›é€šçŸ¥èµ° UI é€‚é…/å¤–å±‚ï¼ˆâ‘£ï¼‰ã€‚
+
+- **åŸç”Ÿè¦†ç›–**ï¼šä»…â€œè¿è¡Œä¸€æ¬¡ runã€è¯»ä¸€æ¬¡å†…å®¹ã€å®¡æ‰¹é—¸é—¨ã€SSE é€’å›â€è¿™ä¸€å±‚ã€‚
+- **ç¼ºå£ï¼ˆæ ¸å¿ƒï¼‰**ï¼šå®šæ—¶/æ¡ä»¶è°ƒåº¦åœ¨ Core ä¸ Harness **éƒ½ä¸å­˜åœ¨**ï¼ˆHarness issue #111 æœªåˆå¹¶ï¼‰ï¼›ç™»è®°/å–æ¶ˆ/å»é‡/é‡å¯ååˆ°æœŸé¡¹è¡¥æ£€ã€å˜æ›´æ£€æµ‹ã€é˜ˆå€¼ï¼Œå…¨éƒ¨è¦å¤–éƒ¨è°ƒåº¦ï¼‹é¡¹ç›®è‡ªå†™ï¼ˆâ‘£ï¼‰ã€‚
+- **å¤±è´¥/æœªçŸ¥**ï¼šæ²¡æœ‰è°ƒåº¦å°±æ— æ³•å¼€å·¥ï¼›DBOS çš„ Cron åªåœ¨é€‰äº† DBOS æ—¶å¯ç”¨ï¼ˆæ˜¯ engine èƒ½åŠ›ï¼Œéæ¡†æ¶è°ƒåº¦ï¼‰ï¼›ä¸å·åŠ ä¿åº•å¿ƒè·³ï¼ˆæ¡†æ¶æœ¬ä¹Ÿæ²¡æœ‰ï¼‰ã€‚
+- **è¯æ®**ï¼šhttps://github.com/pydantic/pydantic-ai-harness/issues/111 ï¼›https://pydantic.dev/docs/ai/harness/ ï¼›ADR-002 Â§â€œåŸç”Ÿèƒ½åŠ›å±‚æ¬¡æ ¸å¯¹â€ã€‚
+
+### åœºæ™¯ 3 Â· åœæœºåç»§ç»­åˆ›ä½œï¼ˆå·¥å…·å·²å†™ä½œå“ v1ï¼Œè¿›ç¨‹åœæ­¢ï¼Œå®Œæˆå›æ‰§æœªåˆ°ï¼›é‡å¯ç»­åšï¼‰
+
+æ—¶åºï¼š
+
+1. å·¥å…·å†™å…¥ v1ï¼ˆå¤–å±‚ ArtifactStoreï¼Œâ‘¢ï¼Œå·²éªŒï¼‰ã€‚
+2. è¿›ç¨‹åœ¨**å·¥å…·ç»“æŸåˆ°å›æ‰§ä¹‹é—´**åœæ­¢ã€‚
+3. é‡å¯ååˆ¤â€œæ¢å¤çš„æ˜¯ session/run è¿˜æ˜¯ä»»åŠ¡æˆæœâ€ï¼š
+   - â‘  é‡å¼€ä¼šè¯ï¼šå¤–å±‚åºåˆ—åŒ– `message_history`ï¼ˆ`ModelMessagesTypeAdapter`ï¼‰+ `conversation_id` å†è·‘æ–° runï¼ˆ**æ—§åŸå‹æœªéªŒåºåˆ—åŒ–æ¢å¤**ï¼‰ã€‚
+   - â‘¡ èµ°ç‚¹æ¢å¤ï¼š`StepPersistence` çš„ `ContinuableSnapshot`ï¼ˆåªåˆ° settled è¾¹ç•Œï¼‰ä¸ **tool-effect ledger** åˆ¤æ–­è¯¥ `tool_call_id` æ˜¯ `completed` è¿˜æ˜¯ `unknown`ï¼›`latest_snapshot`/`continue_run` é»˜è®¤åªå› `complete` å¿«ç…§ã€‚
+   - â‘¡/â‘  åŒ run å·¥å…·ä¸­é€”ç»­è·‘ï¼šéœ€ durable engineï¼›**æ—§åŸå‹æœªæ¥ä»»ä½• engine**ï¼ˆâ‘¤ï¼‰ã€‚
+   - â‘¢ ä»ä½œå“ç»­åšï¼šæ–°è¿›ç¨‹å‡­ manifest/artifact v2 ç»§ç»­ï¼ˆframework-04 L2 åªè¯»ç¡®è®¤ã€**æœªå†™ä¸‹ä¸€é˜¶æ®µ**ï¼›framework-05 C5B ç”± v1 åŸæ–‡æ´¾ç”Ÿ v2ï¼Œå·²éªŒï¼‰ã€‚
+4. â€œä¸èƒ½é é‡æ”¾è¡¥ç¼–æˆåŠŸâ€ï¼šæ ¸å¯¹ä¾æ®æ˜¯ tool-effect ledger + artifact ç‰ˆæœ¬/å“ˆå¸Œï¼›æ¡†æ¶çš„ durable/step è®°å½•**ä¸è¯æ˜ä¸šåŠ¡å®Œæˆ**ï¼ˆâ‘£ ä¸šåŠ¡å®ŒæˆéªŒçœŸï¼‰ã€‚
+
+- **åŸç”Ÿè¦†ç›–**ï¼šä¼šè¯åºåˆ—åŒ–è¾¹ç•Œï¼ˆâ‘ ï¼‰ã€settled èµ°ç‚¹å¿«ç…§ä¸æ•ˆæœè´¦æœ¬ï¼ˆâ‘¡ï¼‰ã€‚
+- **ç¼ºå£**ï¼šåŒ run å·¥å…·ä¸­é€”å´©æºƒæ¢å¤è¦è‡ªé€‰å¹¶æ¥ä¸€ä¸ª engineï¼ˆâ‘¡ï¼ŒæœªéªŒï¼‰ï¼›è·¨è¿›ç¨‹æ¢å¤ `spill` handleã€å†å²è½®æ˜ å°„ã€é”™è¯¯åœç‚¹æœªéªŒï¼ˆframework-05 Â§3ï¼‰ï¼›ä¸šåŠ¡â€œçœŸå®å®Œæˆâ€é¡»æ‰§è¡Œç«¯ç»“æœ + receiptï¼ˆâ‘£ï¼‰ã€‚
+- **å¤±è´¥/æœªçŸ¥**ï¼šframework-04 çš„ effect å´©æºƒæ˜¯**ç‹¬ç«‹ Python/JSON æ¨¡æ‹Ÿ**ï¼Œä¸ç»å€™é€‰ Agent/tool æ¢å¤è·¯å¾„ï¼Œä¸èƒ½ä¸çœŸå®å´©æºƒç­‰åŒï¼›L2 æœªçœŸæ­£å†™ä¸‹ä¸€é˜¶æ®µã€‚
+- **è¯æ®**ï¼š`validation.json`ï¼ˆeffect_recoveryã€L1/L2ï¼‰ï¼›`evidence/long-first.stdout.txt`ã€`long-second.stdout.txt`ã€`migrate-fresh.stdout.txt`ï¼›framework-05 `results-pai.json C5B`ï¼›StepPersistence å®˜æ¡£ã€‚
+
+---
+
+## 4. æœ€å°ç»„åˆä¸çœŸå®å‰©ä½™å·¥ä½œ
+
+**æœ€å°ç»„åˆï¼ˆæŒ‰ç”¨é€”åˆ†çº§ï¼‰**
+
+- è·‘ä¸»ä¼šè¯/å·¥å…·å¾ªç¯/ä¾èµ–æ³¨å…¥/ä¼šè¯ç»­æ¥/å–æ¶ˆï¼šåªéœ€ **â‘ `pydantic-ai-slim[<provider>]`**ã€‚
+- ç”¨å®˜æ–¹æ–‡ä»¶å·¥å…·ã€å¤§ç»“æœè½ç›˜è¯»å›ã€å§”æ´¾å­ä»£ç†ã€èµ°ç‚¹æŒä¹…åŒ–ï¼šåŠ  **â‘¡`pydantic-ai-harness`**ï¼ˆ`FileSystem`ã€`ToolOutputLimits`ã€`SubAgents`ã€`StepPersistence`ï¼‰ã€‚
+- éœ€è¦â€œ**åŒä¸€ run å·¥å…·ä¸­é€”å´©æºƒç»­è·‘**â€ï¼šå†åŠ **æ°å¥½ä¸€ä¸ª** durable engineï¼ˆâ‘¡ï¼Œ`pydantic-ai-slim[dbos]` æœ€è½»â€”â€”åº“å†…è¿›ç¨‹å†… + ç³»ç»Ÿ DBï¼›`[temporal]`/Prefect éœ€å„è‡ª serverï¼‰ã€‚
+- å®šæ—¶ä¸å¤–éƒ¨å˜åŒ–æ£€æµ‹ï¼š**ä¸åœ¨æ¡†æ¶å†…**ï¼ˆâ‘¤ï¼‰ï¼Œå¿…é¡»å¤–éƒ¨è°ƒåº¦ + é¡¹ç›®é€‚é…ï¼ˆâ‘£ï¼‰ã€‚
+
+**è¦å†™ä»€ä¹ˆé€‚é…ï¼ˆâ‘£ï¼‰**
+
+1. ä»»åŠ¡/å­ä»»åŠ¡/å”¤é†’çš„ä¸šåŠ¡å±‚ï¼šsubmit/status/cancel/resultã€å¹‚ç­‰é”®ã€actor/parentã€æ¯ä»»åŠ¡æˆæƒã€æ¥æºä¸è¿è¡Œå¼•ç”¨ã€å®¡é˜…äº‹ä»¶ï¼›æ—§ `TaskStore` ä¸èƒ½ç›´æ¥å½“äº§å“ schemaã€‚
+2. å®šæ—¶/æ¡ä»¶ç™»è®°ä¸å¤–éƒ¨å˜åŒ–æ£€æµ‹ï¼šç™»è®°/å–æ¶ˆ/å»é‡/é‡å¯è¡¥æ£€ã€æ•°æ®æ¥å…¥ã€æ¡ä»¶åˆ¤æ–­ï¼›ä¸å®é™…æ‰§è¡Œ/é€šçŸ¥åˆ†å¼€ã€‚
+3. authority/receiptï¼šåŸŸå†…å†³å®šè€…ã€actor/capability/scope æ ¡éªŒã€æŒä¹…å®¡è®¡ receiptã€è·¨è¿›ç¨‹æ ¡éªŒ/å¤±æ•ˆï¼›â€œæ¨¡å‹æ­£æ–‡ä¸å¾—è‡ªæŠ¥å·²æˆæƒ/å®Œæˆâ€ã€‚
+4. å‰ç«¯è¾¹ç•Œï¼šæŠŠ `UIAdapter`/`UIEventStream` æ”¾è¿›è‡ªæœ‰é‰´æƒè·¯ç”±ï¼›ä¸»åŠ¨ç»“æœ/æ— æ–‡æœ¬ç»“æŸçš„é€’å›ã€æ–­çº¿é‡è¿ã€thread/run å…³è”ã€‚
+5. çœŸå®å·¥å…·ä¸éš”ç¦»ï¼šShell/æµè§ˆå™¨/ç½‘ç»œå·¥å…·é¡»å¦é€‰å¹¶ç”± OS/å®¹å™¨é™æƒï¼ˆ`FileSystem.root_dir` **åªé™æ–‡ä»¶å·¥å…·ï¼Œä¸æ˜¯éš”ç¦»**ï¼‰ï¼›æ¨¡å‹å‡ºå£ç» Sereinï¼ˆæœªéªŒï¼‰ã€‚
+
+**äº§ç‰©ç”±è°æ¥æ”¶**ï¼šä¸»ä½“/å­ä»£ç†äº§ç‰©è¿›**å¤–å±‚ ArtifactStore**ï¼ˆç‰ˆæœ¬/å“ˆå¸Œ/æ¥æºï¼Œâ‘¢å¯æ²¿ç”¨ï¼‰ï¼›è¿è¡Œæ€å¿«ç…§ç”± `StepPersistence` storeï¼ˆâ‘¡ï¼‰æŒæœ‰ï¼›äºŒè€…çš„å½’å±ä¸çœŸæºè¾¹ç•Œç”±ä¸šåŠ¡å±‚å†³å®šï¼ˆâ‘£ï¼‰ã€‚`StepPersistence` çš„ run/checkpoint ID ä¸ message history **ä¸å¯ä½œä¸ºè·¨æ‰§è¡Œå™¨å¯ç§»æ¤æˆæœå¥‘çº¦**ï¼Œå¯ç§»æ¤çš„æ˜¯å¤–å±‚ task/artifact å¥‘çº¦ï¼ˆframework-04 å¤æ ¸ï¼‰ã€‚
+
+---
+
+## 5. éƒ¨ç½²ä¸èµ„æºçº¦æŸï¼ˆåªå†™ç»„æˆ/å¸¸é©»è¿›ç¨‹/å¤–éƒ¨ä¾èµ–/é…ç½®è¾¹ç•Œï¼Œä¸ç»™æ•°å­—ï¼‰
+
+- **ç»„æˆ**ï¼šä¸€ä¸ª Python worker è¿›ç¨‹æ‰¿è½½ Agent runï¼ˆâ‘ ï¼‰ï¼›å¯é€‰å¯ç”¨ Harness èƒ½åŠ›ï¼ˆâ‘¡ï¼‰ä¼šé¢å¤–äº§ç”Ÿç£ç›˜æ–‡ä»¶ï¼ˆspill è½ç›˜äº `.pydantic-ai-harness/` æˆ–è‡ªå®š rootï¼›StepPersistence ç”¨ SQLite/æ–‡ä»¶/MongoDBï¼‰ã€‚
+- **å¸¸é©»è¿›ç¨‹**ï¼š
+  - åªè£… Coreï¼š**æ— é¢å¤–å¸¸é©»å®ˆæŠ¤è¿›ç¨‹**ï¼Œè¿›ç¨‹å³ä¸€æ¬¡ runã€‚
+  - æ¥ DBOSï¼š**åº“å†…è¿›ç¨‹å†…**ï¼Œæ— ç‹¬ç«‹ serverï¼Œä½†ä¾èµ–ä¸€ä¸ª**ç³»ç»Ÿæ•°æ®åº“**ï¼ˆå¹¶è‡ªå¸¦ Queues/Cron ä¸ºå¯é€‰ï¼‰ã€‚
+  - æ¥ Temporalï¼š**éœ€è¦ Temporal Server å¸¸é©»**ï¼ˆæœ¬åœ°æˆ–ç‹¬ç«‹æœåŠ¡ï¼‰ï¼Œworker è¿å…¶ task queueã€‚
+  - æ¥ Prefectï¼šéœ€å…¶ server/éƒ¨ç½²å±‚ã€‚
+  - è°ƒåº¦/å¤–éƒ¨æ£€æµ‹ï¼š**æ¡†æ¶å¤–**ï¼Œé¡»å¦è®¾è°ƒåº¦å™¨ï¼ˆç³»ç»Ÿ cronã€å®¹å™¨è°ƒåº¦æˆ–æ‰€é€‰ engine çš„ cronï¼‰ã€‚
+- **å¤–éƒ¨ä¾èµ–**ï¼šæ¨¡å‹ providerï¼ˆæœ¬é¡¹ç›®ç» Sereinï¼‰ï¼›durable engine çš„æœåŠ¡/æ•°æ®åº“ï¼ˆæŒ‰æ‰€é€‰ engineï¼‰ï¼›harness spill store çš„ç£ç›˜ï¼›UI é€‚é…ä¾èµ– Starlette/FastAPI ç”Ÿæ€ï¼ˆè‹¥èµ°å…¶ `dispatch_request`ï¼‰ã€‚
+- **é…ç½®è¾¹ç•Œï¼ˆä¸¾ä¾‹ï¼Œå‡å®˜æ–¹æ–‡æ¡£å£°ç§°ï¼‰**ï¼š`FileSystem(root_dir, allowed_patterns, denied_patterns, read_only_patterns, tools, content_hashes)`â€”â€”`root_dir` **ä¸æ˜¯ OS æ²™ç®±**ï¼Œ`Shell` ä¸å—å…¶çº¦æŸï¼›`ToolOutputLimits(bands, per_tool, store, serializer)`ï¼Œé»˜è®¤ spill é˜ˆå€¼ 10,000 å­—ç¬¦ã€é»˜è®¤ store `LocalFileStore`ï¼ˆ0700ã€æ‹’ç»è¶Šç•Œ handleï¼‰ï¼›durable ç»´åº¦â€œ**æ¯ agent æ°å¥½ä¸€ä¸ª engine**ï¼Œè£…ç¬¬äºŒä¸ªå³ `UserError`â€ã€‚
+- **ä¸å†™**ï¼šå†…å­˜/å·¥æœŸ/èŠ‚çœæ¯”ä¾‹/VPS å¹¶å‘æ•°å­—ã€‚æ—§åŸå‹åªç»™å‡º**æœ¬æœº Windows å®šæ€§è§‚å¯Ÿ**ï¼ˆframework-05 Â§4.4ï¼Œæ ·æœ¬ 1â€“3 ç‚¹ï¼‰ï¼Œ**ä¸èƒ½å¤–æ¨** Ubuntu VPS å³°å€¼æˆ–å¹¶å‘ï¼ˆVPS å®¹é‡æ–‡æ¡£æ˜ç¡®ï¼‰ã€‚
+
+---
+
+## 6. æœªéªŒé¡¹æ¸…å• + ä¸€é¡¹æœ€å°ç¦»çº¿éªŒè¯å»ºè®®
+
+**æœªéªŒé¡¹ï¼ˆæ—§åŸå‹æœªå–å¾—è¿è¡Œè¯æ®æˆ–ç°è¡Œæ–‡æ¡£å£°ç§°æœªåœ¨æœ¬é¡¹ç›®è·‘è¿‡ï¼‰**
+
+1. `pydantic_ai.workspaces`/`LocalWorkspace`/`ExecutionEnvironment`ï¼šCore 2.51.0 ä¸­ `pydantic_ai.workspaces` **å¯¼å…¥ä¸å¯ç”¨**ï¼ˆframework-04 è®°å½•ï¼‰ï¼›æµ®åŠ¨æ–‡æ¡£çš„ workspace æœ¯è¯­**ä¸å¥—ä½œå›ºå®šç‰ˆæœ¬å·²éªŒè¯èƒ½åŠ›**ã€‚
+2. durable executionï¼š**æœªæ¥ä»»ä½• engine**ï¼›åŒ run å·¥å…·ä¸­é€”å´©æºƒç»­è·‘æœªéªŒï¼›çœŸå®å‰¯ä½œç”¨å¯¹è´¦æœªéªŒã€‚
+3. `message_history` çš„**åºåˆ—åŒ–å¾€è¿”æ¢å¤**æœªéªŒï¼ˆæ—§åŸå‹åªéªŒå¤–å±‚è®°å½•æ³¨å…¥ + æ–° runï¼‰ã€‚
+4. HITL/å®¡æ‰¹ï¼ˆ`requires_approval`/`DeferredToolRequests`/`CallDeferred`ï¼‰ã€`Memory`ã€`ConversationSearch`ã€Guardrailsã€CodeModeã€å„ sandboxï¼š**ç°è¡Œæ–‡æ¡£å£°ç§°ã€æœªåœ¨æœ¬é¡¹ç›®è¿è¡Œ**ã€‚
+5. æµå¼/SSE äº§å“è¾¹ç•Œï¼šframework-05 æ¡©æ”¯æŒ SSEï¼Œä½†äº§å“æµå¼/æ–­çº¿é‡è¿æœªè·‘ã€‚
+6. `SubAgents` æˆæƒèŒƒå›´å¼ºåˆ¶ï¼ˆchild è¶Šæƒè¯»ï¼‰ã€å¼‚æ­¥åå° childã€OS/å®¹å™¨éš”ç¦»æœªéªŒã€‚
+7. çœŸå®æ¨¡å‹/Serein/ç½‘æœ/æµè§ˆå™¨ã€çœŸå®å·¥å…·ä¸å¤–éƒ¨å‰¯ä½œç”¨ã€è·¨æ‰§è¡Œå™¨äº¤æ¥å‡æœªéªŒã€‚
+
+**ä¸€é¡¹æœ€å°ç¦»çº¿éªŒè¯å»ºè®®ï¼ˆé™æ€ææ–™æ— æ³•å›ç­”çš„å…³é”®ç‚¹ï¼šåŒä¸€ run å·¥å…·ä¸­é€”å´©æºƒçš„æ¢å¤ä¸â€œå·²åšåŠ¨ä½œâ€åˆ¤å®šï¼‰**
+
+- **å»ºè®®**ï¼šåœ¨ç¦»çº¿ã€åªè¿æœ¬æœºè„šæœ¬åŒ–æ¨¡å‹æ¡©ã€ä¸æ¥äº§å“/Serein çš„å‰æä¸‹ï¼Œæ„é€ ä¸€ä¸ªæœ€å° agentï¼šä¸€ä¸ª async tool å…ˆå‘å¤–å±‚æ–‡ä»¶å†™å…¥ä¸€ä¸ªå¸¦å†…å®¹å“ˆå¸Œçš„â€œæ•ˆæœè®°å½•â€ï¼Œå†åœ¨å·¥å…·**å°šæœªè¿”å›**æ—¶æ€æ­»è¿›ç¨‹ï¼›éšååœ¨åŒä¸€ `SqliteStepStore`/è‡ªå®š store ä¸Šï¼Œç”¨ `StepPersistence` çš„ `ContinuableSnapshot` ä¸ tool-effect ledger åˆ¤æ–­è¯¥ `tool_call_id` çš„ `started`/`completed` çŠ¶æ€ï¼Œå¹¶è®©æ–°è¿›ç¨‹æ®æ­¤**åªè¯»ç¡®è®¤/ç»­åš**ï¼ˆä¸é‡å¤å†™å…¥ï¼‰ã€‚
+- **é€šè¿‡æ¡ä»¶**ï¼šï¼ˆaï¼‰é‡å¯è¿›ç¨‹èƒ½ä» store è¯»åˆ°è¯¥ tool_call çš„è®°å½•ï¼Œä¸”èƒ½åŒºåˆ†â€œå·²å®Œæˆ/æœªçŸ¥â€ï¼›ï¼ˆbï¼‰ä¸šåŠ¡ä¾§æ®æ­¤åˆ¤å®šå**ä¸é‡å¤**å†™å…¥æ•ˆæœè®°å½•ï¼ˆæ–‡ä»¶å“ˆå¸Œä¸æ–°å¢ç¬¬äºŒç‰ˆï¼‰ï¼›ï¼ˆcï¼‰è‹¥æ”¹ç”¨ durable engineï¼Œéœ€å¯¹æ¯”å…¶åœ¨è¿™æ¡è·¯å¾„ä¸Šæ˜¯å¦æ¯” StepPersistence æ›´èƒ½åˆ¤å®šä¸­é€”çŠ¶æ€ã€‚é™æ€ææ–™æ— æ³•ç»™å‡ºè¯¥é€šè¿‡ç»“è®ºï¼Œ**æ•…ä»…å»ºè®®ï¼Œæœªè¿è¡Œ**ã€‚
+
+---
+
+## é™„ï¼šä¸ä»»åŠ¡å¡ / ADR-002 çš„å†²çªæ£€æŸ¥
+
+- æœªå‘ç°ä¸ä»»åŠ¡å¡ Â§4/Â§5 æˆ– ADR-002 çš„å†²çªã€‚ADR-002 Â§â€œåŸç”Ÿèƒ½åŠ›å±‚æ¬¡æ ¸å¯¹â€å¯¹ PydanticAI durable executionâ€œå± engine å±‚ã€ä¸èƒ½ç”± Core/Harness æœ‰å·¥å…·å¾ªç¯ç›´æ¥æ¨å®šå¸¸é©»å®šæ—¶å™¨â€çš„è¯´æ³•ï¼Œä¸æœ¬æ¬¡æ ¸å¯¹ä¸€è‡´ã€‚
+- ä¸€å¤„**è¯æ®è¾¹ç•Œæç¤ºï¼ˆéå†²çªï¼‰**ï¼šHarness `0.36.0` ä»…ç”±æ—§åŸå‹é”æ–‡ä»¶ç¡®è®¤ï¼Œå…¬å¼€ release åˆ—è¡¨æœªåˆ—åˆ°è¯¥ tagï¼›æœ¬æŠ¥å‘ŠæŠŠâ€œç°è¡Œæ»šåŠ¨ 0.x æ–‡æ¡£å£°ç§°çš„èƒ½åŠ›â€ä¸â€œæ—§åŸå‹å›ºå®šç‰ˆæœ¬å·²éªŒèƒ½åŠ›â€åˆ†åˆ—ï¼ŒæœªæŠŠæ–°æ–‡æ¡£èƒ½åŠ›å€’ç®—ä¸ºæ—§åŸå‹å·²éªŒã€‚
